@@ -8,9 +8,14 @@ The Dogs of Santiago Notes:
 * Create a narrative pull so the story *moves*
 * Nothing easy for him, ordeals piling on top of ordeals
 * No memories or stories apart from dialogue
-* Dreams happen as a matter of fact
-* A book is deed, not a product
+* Dreams happen as a matter of sequence, indistinguishable from reality
+* A book is a deed, not a product
 * "You are 37. It's your eyes. Your face is young, but there is a weariness in your eyes."
+* No bon-mots, no clever turns-of-phrase
+* Shower in the dark
+* Trying to buy flowers, clerk shows him flour
+* Don't hold anything back, ideas, emotions
+* An artist whose art is silence, "the plague of our time is noise, so I have created a fundamentally new artistic movement - *shutthefuckupism*. The only relevant theme an artist needs to communicate is silence, the need for silence, at more than any other time in history."
 
 == OUTLINE
 Day One (25000):
@@ -50,3 +55,10 @@ Characters:
 
 
 Second Half: Opens with Interrogation. Says they found him in park. Says he knew what happened at The Clinic. Recounts his story up to then. Psychiatrist puts him back on medication. They give him a nice hotel room and put him on a flight back to the US. In his seat is a young three year old boy. They make friends.
+
+
+
+Day One:
+
+Airport:
+Walking down the cavernous empty space in the dead of morning, dark outside, lights, sleepwalking people, a wide opening with a  line of people a mile long, pulmonary embolism, balding guy, cannot understand the man (expects he would speak english), does not have ID, panics, has forgotten his bag somewhere, runs back frantically, he eventually finds it in the bathroom, a young kid going through it, he roughly pushes him into the wall without thinking, his heart pounding, he takes a xanax, goes back, is through for a visit, enters the section with baggage, is sniffed by a guard dog, find cheeze its, medicine, nothing else. He leaves the airport, a row of taxis, one of them speaks english, he gets in that cab, says take me to the hotel rivera. On the way he sees the mountains and the city, imagines he is on the mountain top, in the snow. Comes back, pulls out a photo of a young woman and looks at it.
