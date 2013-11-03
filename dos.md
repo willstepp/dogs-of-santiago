@@ -9,7 +9,7 @@ A fat man, Chilean, emerged from the last stall. He looked surprised to see a ha
 
 "Muchas gracias, señor," he greeted his reflection.
 
-"De nada," he nodded to the mirror, and walked out.
+"De nada," his reflection answered back.
 
 It was a cavernous hallway, from the gates to customs, with brick-lined walls. It looked old here, a futuristic design from thirty years ago. Everything was dim, in half light. Above were skylights, but outside it was still early morning, the night sky lightening against the dark clouds. The floors shined. You could see fifty yards ahead. Down there, close to a row of doors was a janitor, slowly mopping. The man kept pace with the others, most sleepwalking without really knowing where they were headed. There were signs in Spanish, and arrows. He had downloaded a translator app before leaving, but did not feel the need to pull it out just now. There seemed only one way to go.
 
@@ -57,19 +57,57 @@ A kid, maybe fifteen or sixteen was there, sifting through his bag. On the toile
 
 "What the fuck, man? What do you think you're doing with my stuff? That's my bag you're going through!"
 
-The kid was frightened and stammered something out in Spanish and tried to break free. The man was about to let him go, but a wave of anger went through him and he shoved him hard into the toilet. The kid's back hit the side of the tank and he went down, grabbing himself with both hands. The man was immediately sorry but his anger was still high. He lunged at the kid and the kid scrambled under the stall opening and ran out.
+The kid stammered something in Spanish and tried to break free. The man was about to let him go, but a wave of anger went through him and he shoved him hard into the toilet. The kid's back hit the side of the tank and he went down, grabbing himself with both hands. The man was immediately sorry but his anger was still high. He lunged at the kid and the kid scrambled under the stall opening and ran out.
 
 Dizziness overcame him and he sat on the toilet and put his head in his hands. After a few minutes he collected himself and put his things back into the bag. He made sure his ID and paperwork was still there, and then took an itinerary of everything else he could remember bringing. It was all there. He took out his toiletries bag and unzipped it, popping two pills from an orange prescription bottle. He placed them on his tongue and went out to the sink. He turned on the faucet and cupped a handful of water into his mouth, swallowing the pills.
 
 Then he returned to the stall and waited. It took half and hour or so for the Xanax to kick in, and when it did he felt the fear and dizziness subside. A heavy sense of peace and mellowness came over him. He could sleep here if he wanted, but got up and made his way back to customs. He was laughing about everything that happened and didn't even mind waiting in line for another hour. By this time it was eight in the morning and the place was brighter, his mood was brighter.
 
-"Here, the paperwork and my ID," he handed his documents to another kiosk officer. This officer also did not speak much english.
+"Here, the paperwork and my ID," he handed his documents to another kiosk officer. This officer also did not speak much english. The officer nodded and wrote something down on the paper. He stamped his passport and gave it back to him, waving him through to the other side.
 
-"Vacation," he answered, "Vacation."
+This place is like a maze, he thought, rounding another corner, not sure exactly where he was going, but following the general traffic of people. He smelled food somewhere, coffee, sausage, cinnamon rolls. He next entered a cavernous space, with high ceilings, baggage claim conveyers. A female voice came over the speakers in regular intervals spoke something in Spanish, in a calm voice. He found his flight number on the digital panels overhead and walked over to find his checked bag in a stack against the far wall. He wheeled it out and continued through the area, the space congested with crowds of families and businesspeople, couples and patrolling guards with guns in their holsters. He came to the back of a disorganized line, the end of which ended in a panicked crowd of travelers shoving their checked baggage through X-ray machines as officers inspected their contents on tiny monitors to the side.
 
-The officer nodded and wrote something down on the paper. He stamped his passport and gave it back to him, waving him through to the other side.
+A Frenchmen pushed into line ahead of him, subtly, using his cell phone conversation as a distraction. The man did not argue. He was not upset, the drugs at maximum effectiveness now. He was relaxed. He even felt proud of himself for not saying anything or reacting in outrage, although he might have only thirty minutes ago. Good stuff, he thought. Someday I have to quit.
 
+As they approached the X-ray machines, a large German Shephard came nosing through the crowd, leading an officer by his leash. The dog sniffed at bags every now and then, sometimes stopping, but most of the time he continued without breaking a stride. When he reached the man's luggage he stopped and sniffed around for a few seconds and the man's gut dropped. Were his prescriptions legal to bring into the country? He really didn't know. Would they confiscate them, arrest him. So many fears went through his mind until the dog continued on his way. The man made eye contact with the dog's officer, who seemed preoccupied and did not return his nod.
 
+He put his bag through the X-ray machine when it was time, and the rubber belt pulled it through the metal box. He watched it go through on the monitor and saw all his belongings in what looked like camera film negative. There was a green outline around the monitor screen, which he took as a good sign, until the officer who sat at the monitor pushed a button to stop the conveyor. A buzzer sounded and a few other officers looked around to see what was happening.
 
-is through for a visit, enters the section with baggage, lets a frenchman break in line, feels proud of himself, is sniffed by a guard dog, find an apple, medicine, nothing else. He leaves the airport, a row of taxis, one of them speaks english, he gets in that cab, says take me to the hotel rivera. On the way he sees the mountains and the city, imagines he is on the mountain top, in the snow. Comes back, pulls out a photo of a young woman and looks at it.
+One came over and the other pointed out something to him. They both nodded and looked suspiciously at the man. Even with the sedatives in his system he was panicked and wondered what they had found. The other officer walked to the conveyor and pulled out his luggage. He unzipped it there in front of everyone, exposing his underwear, bag of q-tips, everything. He pushed everything to the side until he found an apple and a box of Cheez-Its. He pulled them out and tossed them into the trash. He then zipped up the luggage and gave the man an impatient glance, pointing to a sign which illustrated no food or produce. He gave a nod to the officer at the monitor who hit another button and the conveyor continued, this time without stopping. He was through.
+
+He rode an escalator up to the main level into the general area of the airport. At the top he went through a crowd of expectant faces, each looking for some other face than his. The smell of food was stronger here and he had not eaten since the night before, so he decided to stop and grab something to eat before heading to the hotel. He found a coffee shop among a row of restaurants and stood in line there, pointing to a cherry danish in the glass and somehow communicating to the girl behind the counter he wanted a medium-sized mocha. He reached the counter and a man gave him the total in Spanish.
+
+"Just take it out of this," he said, handing him the twenty from his wallet.
+
+"No moneda Americano," the man said. He seemed agitated.
+
+"No?"
+
+"No," the man behind the counter repeated, and pointed down the walkway, making a gesture like exchange of money.
+
+"Oh fuck, sorry man," the man said. He took back the twenty and pushed the coffee and danish back into the counter.
+
+The exchange didn't open for another half hour, so the man sat on his bag against the desk. He was exhausted, hungry, and just wanted to get to the hotel so he could get some proper sleep before this afternoon. He took out his phone and checked to see if there was a signal (there wasn't) and then finished listening to a WTF with Marc Maron podcast he had started on the flight. Then he realized his battery was low so turned it off. As he sat there he remembered all his last-minute travel notes were written on the phone's notepad app. So he pulled his journal and pen from his duffle, turned back on the phone, and copied them down, just in case.
+
+By then the exchange was opened, and he exchanged the rest of his pocket money, about a hundred and twenty dollars, for Chilean pesos. He looked at the strange, brightly colored money for a moment before stuffing it in his wallet. He returned to the coffee shop but there was a line so he said screw it and decided to head to the hotel instead.
+
+Outside it was even colder than he remembered from this morning, overcast and windy. An old man was spraying down the walkway outside the automatic doors and some overspray him in the face. He gave the old man a nasty look and went down a ways to a line of yellow taxis, all the drivers leaned on their vehicles, waiting for customers.
+
+"Hey man, need a lift?" one of the driver's said. He was the only one who spoke English so he gave him a nod and handed him his luggage. The driver jumped up, threw the luggage in the trunk and opened the door for the man. Once inside he asked, "Where would you like to go?" with such a strong accent and trouble articulating the words it was obvious he only knew enough English for business reasons. But it was enough.
+
+"180 Miraflores, cross street with Moneda. Here," he handed him the notes he had jotted into his journal earlier, and pointed to the address.
+
+"Ah, Hotel Riveria, si" The driver gave him a thumbs up, put down the fare flag, and took off.
+
+Once far enough away, the man turned back and took in the entire airport. It was an impressive sight, the giant metal and glass structure, futuristic in that thirty year old way.
+
+The driver weaved in and out of the traffic like a man on a mission. He made no attempt at small talk, but this was fine with him. It would have been impossible anyway. So instead, he looked out the window, a wave of relief coming over him. 
+
+He had a moment of weakness back there, he had actually taken some Xanax. It had been a couple months since the last time. He knew it would be this way. And it was. He felt good. Thankfully he had done as his mother suggested and got the prescription filled the day he told her he was leaving. Just the Xanax and Ambien, short term stuff. No Lexapro, he didn't need a long-term solution, just a safety net. Fuck, why did he shove that poor kid? That kid probably had shit his pants. Hell, he nearly shit his. That was not him back there. Not him at all.
+
+He saw outside the cars going by. Cars he did not recognize, smaller and older than those on the American highways. Inside were Chileans. Life here was the same as in the states. Going to work, going home. The buildings were the same, not exactly, but close enough. Old ones, shiny new ones. Dilapidated ones. Graffiti on the concrete overpass. In Spanish of course. Green signs in Spanish, roads, exits. The smells the same, gasoline, the crisp, almost metallic winter air. A gray light, overcast, maybe a little chance of rain. The people different, native, more ancient looking, shorter. He saw them walking on the sidewalks. 
+
+Beyond the city he saw the mountains, the Andes. How far was it there, to those snowy peaks? He imagined the silence of that place in contrast to the noise down here. He was sitting there in the snow, cross-legged, he ankles exposed and freezing. The cold of the snow slowly coming through the bottom of his jeans. He shivered. The only sound here was the whipping of the wind around the crags. No life nor food. Only silence. This was no place for a human being.
+
+He awoke still in the taxi, the driver stopped in construction traffic, frustrated and banging on the steering wheel. It was raining. Outside were people walking past, making better time than the cars. It took him a few moments to realize he was in Chile, took some time before the events of the morning came back to him. He reached into his duffle bag and pulled out his journal. Between two pages was a folded picture. He opened it and gazed at the dark-haired woman staring back at him. She was beautiful.
 
