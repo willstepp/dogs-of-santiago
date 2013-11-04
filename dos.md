@@ -109,5 +109,101 @@ He saw outside the cars going by. Cars he did not recognize, smaller and older t
 
 Beyond the city he saw the mountains, the Andes. How far was it there, to those snowy peaks? He imagined the silence of that place in contrast to the noise down here. He was sitting there in the snow, cross-legged, he ankles exposed and freezing. The cold of the snow slowly coming through the bottom of his jeans. He shivered. The only sound here was the whipping of the wind around the crags. No life nor food. Only silence. This was no place for a human being.
 
-He awoke still in the taxi, the driver stopped in construction traffic, frustrated and banging on the steering wheel. It was raining. Outside were people walking past, making better time than the cars. It took him a few moments to realize he was in Chile, took some time before the events of the morning came back to him. He reached into his duffle bag and pulled out his journal. Between two pages was a folded picture. He opened it and gazed at the dark-haired woman staring back at him. She was beautiful.
+He awoke still in the taxi, the driver stopped in construction traffic, frustrated and banging on the steering wheel. It was raining. Outside were people walking past, making better time than the cars. It took him a few moments to realize he was in Chile, took some time before the events of the morning came back to him. He reached into his duffle bag and pulled out his journal. Between two pages was a folded photograph. He opened it and gazed at the dark-haired woman staring back at him. She was beautiful.
 
+
+Chapter Two
+
+Curled up inside the doorway to the Hotel Riviera, a gray mutt of some kind lay oblivious to the world, preventing the old doors from opening fully. The man was soaked through by this point and had his duffle stacked on top of his luggage, which was being wheeled behind him. A stream of water fell down over the green fabric overhang of the entrance onto his bag. The man pushed hard against the door and slid the dog out of the way with it. He then twirled his luggage around and pushed them through the door first, holding the door with one hand.
+
+Inside, the foyer was cramped with archways separating the different areas. Its decor was out of fashion by a few decades, wooden accents, paintings of ships and European beaches, dim lighting everywhere. The tiled floors were slick with rain, so the man went carefully over to the front desk. A couple was ahead of him, speaking to the hotel clerk. They argued in Spanish, and then the male customer finally threw his hands up and signed a sheet of paper. When he turned around to leave he made eye contact with the man, and rolled his eyes. The man nodded. When he approached the desk he pulled out a sheet of paper, where he had translated what he needed to tell the clerk.
+
+"Hola, mi nombre es William S y tengo una habitación reservada para esta noche hasta el miércoles," he read with emphasis on each word.
+
+"Reservation you say?"
+
+"Yes, good, you speak English. I didn't know."
+
+The clerk nodded, "Si. Let me find your reservation."
+
+He flipped through a small notepad on the counter.
+
+"Mr. S?"
+
+"Yes, that's me." the man smiled.
+
+"We have no Mr. S with reservation. Did you mean Sloan? We have a Sloan."
+
+"No, you should have a reservation. I wrote an email just yesterday. In Spanish. Said I was coming into the city today. Mr. S, staying through Wednesday. I received a response from a lady. I printed it out. Here."
+
+He handed the clerk the printout. The clerk took it, read thoughtfully, and turned to a lady on the other side of the desk. They talked for some time, flipping through more papers, and finally the clerk turned back to him.
+
+"Mr. S, we have no copy of your reservation but would be happy to rent you a room. Would you like a room?"
+
+"Please," the man said, and then added, "at the rate you quoted in the email, $75 a night?"
+
+The clerk frowned.
+
+"Unfortunately, sir, we do not have any more rooms at that rate. We have a double bed room for $120 American dollars a night, is that okay?"
+
+"Fine, that's fine."
+
+A young boy took his luggage and walked him over to a small elevator in the back corner hallway. He put down the bags and pushed the only button. "Cinco," he said, and then wandered off. The man looked at his key, the number 512 in gold letters. Eventually a rickety platform came down and stopped. The man slid open the wooden door and wheeled his luggage into the space. He pressed the 5 button and the lift shuttered and squeaked then took him up.
+
+The room was clean and small. It had two twin beds with a tiny shelf between them. A clock radio on the shelf blinked 12:32 am. He turned on his phone and checked the time, 11:18 am. The battery was on red so he pulled out the plug and discovered the outlets were different. "One more fucking thing," he said, turning off the phone. He set the time on the clock radio and set the alarm for 3 pm. Then he pulled back the thin sheets and blanket and curled up in them, kicking off his shoes onto the floor.
+
+The alarm woke him at 3 and he rose and immediately opened his laptop. It still had an hour or so. He found the wifi and connected, no password required. He opened his email and reread the last email from Constanza:
+
+Hey babe, glad you decided to come! You so crazy (in a good way ;-) I know you won't have phone when you get here, but maybe send an email from the hotel? If I don't hear from you let's just meet up at Juan Valdez in Providencia at 1730. Can't wait to meet you in person finally, so we can have one of our deep conversations face to face. C
+
+PS - I'm super nervous! xoxoxo
+
+He replied:
+
+The eagle has landed! In Chile as we speak (write). I told you I would make it happen. This is just to let you know I'm here and can make it to Juan Valdez by 1730 no problem. I will see you there, D
+
+PS - I'm nervous too! @-->---
+
+He undressed, grabbed his toiletries bag, his travel towel, and went to the bathroom. As he flipped the light switch a loud flash popped and the bathroom went dark. He fumbled around for the shower and eventually figured out a medium temperature. He got in the shower and bathed in the dim light that came in from outside. After, he pulled out his nice jeans and a dark striped button up, white t-shirt, his nice leather shoes. Fortunately there was a mirror in his toiletries bag, so he used that to floss his teeth and fix his hair.
+
+Downstairs he approached the same clerk who checked him in and asked if he knew any stores that sold US socket adapters and also a place that sold flowers. The clerk nodded and walked around the desk. He led the man outside, where it had stopped raining. He took him by the hand and led him to the curb, traffic bumper to bumper. He pointed down to the end of Miraflores.
+
+"See, there the intersection, look for Merced. There is a Lider. In there you can buy some flowers. For adapters, maybe head down Moneda to the market side streets. Good?"
+
+Will nodded, but then asked, "Well, if down Moneda has a marketplace, do I need to go to the Lider? It might save me walking if I can get both in the same place."
+
+"Do what you like, my friend. I think you will be okay," the clerk said, somewhat agitated. I need to get back to the desk."
+
+He walked back to the hotel, but tripped over an elderly man sitting against the building. The man had only one leg, but it was extended into the walkway. He held out a styrofoam cup with a few coins in it. The clerk lost his temper and cursed at the old man, who just stared at his insults. Eventually the clerk went back into the hotel. Will felt sorry for the crippled man, and wanted to help him, but felt ashamed. He didn't know why.
+
+Will decided to try his luck down Moneda, so took off that way, making sure he noted the direction he came from so he could find his way back. There were crowds of people, businessmen mostly, attractive women. Traffic everywhere. He passed a large church next to a large government building. He noticed certain intersections were only for pedestrian traffic, and they even had red lights and green lights. He turned down one of these side streets, Ahumeda and found a small electronics store. Luckily he had remembered to bring his plug and just showed it to the man behind the counter. The man went to the back and returned with a black adapter and that was that. Will handed him the largest Chilean bill he had and that seemed to cover it, with change back. He continued down the street, looking for a place that might sell flowers. He also glanced around for a clock but couldn't find one, so he stopped a lady going the opposite direction and tapped his wrist as if asking for the time.
+
+"Las cuatro y media," she replied.
+
+"English?"
+
+"No," she shook her head and then went on.
+
+He walked down the street, passing store after store, hundreds of people. His breathing shallower and shallower, until he had to stop and collect himself against a large movie advertisement, Cars 2. He breathed deep and slowly the dizziness passed. His heart rate returned to normal.
+
+At last he came to another Lider, the same store the hotel clerk had mentioned, and walked in. Like most grocery stores, it had a familiar layout. But he couldn't find any section with flowers. He approached a worker stocking pizza crusts and spoke to him in English.
+
+"Hey, can you help me find flowers? I'm in kind of a hurry."
+
+"Que?" the man asked.
+
+"Flowers, pretty flowers."
+
+"Engles?"
+
+"Si, English. Can you show me to the flowers, if you have any?"
+
+"Si," the man said. He rose and led him over two isles to the baked goods. There the worker pointed to five and ten pound bags of flour.
+
+"Flour" he said.
+
+"Si," Will said, "Gracias. Gracias"
+
+The worker smiled and walked off.
+
+Will continued walking the isles until finally he spotted a little stand with some potted plants and flowers. He picked out bunch of red and yellow flowers in a pot, bought the entire pot and tossed it and the soil outside the store. He carried the flowers in one hand and the bag with the adapters in the other and decided to try to reach Providencia by Metro. He pulled out the small guide book the hotel provided and found the Metro map. The nearest station was Santa Lucia, back in the direction of Hotel Riveria. He quickened his pace and using the map, found his way back to Moneda, then up to the Santa Lucia metro entrance.

@@ -4,7 +4,6 @@ The Dogs of Santiago Notes:
 * Wallow in the senses
 * Do not shy away from the shadow
 * Insignificant words, sentences, paragraphs, scenes, chapters leading to an ineffable significance
-* Theme: A strange, hostile world becomes warm and embracing
 * Create a narrative pull so the story *moves*
 * Nothing easy for him, ordeals piling on top of ordeals
 * No memories or stories apart from dialogue
@@ -15,7 +14,8 @@ The Dogs of Santiago Notes:
 * Shower in the dark
 * Trying to buy flowers, clerk shows him flour
 * Don't hold anything back, ideas, emotions
-* An artist whose art is silence, "the plague of our time is noise, so I have created a fundamentally new artistic movement - *shutthefuckupism*. The only relevant theme an artist needs to communicate is silence, the need for silence, at more than any other time in history."
+* An artist whose art is silence, "The plague of our time is the proliferation of mass communication, so he has created a new artistic movement - *shutthefuckupism*. The only relevant theme an artist needs to communicate to this new world order is silence, our innate need for silence and contemplation, at more than any other time in history. So he's taken a vow of silence."
+* Ending: Interview with Government Agent (female), discussion with psychiatrist, hotel room, restaurant, park - the beautiful surroundings, lying under the treetops, sunlight through the leaves, dogs sleeping in the sun, a feeling of sublime gratitude at being alive, unspoken but unmistaken.
 
 == OUTLINE
 Day One (25000):
