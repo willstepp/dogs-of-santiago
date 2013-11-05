@@ -14,7 +14,7 @@ The Dogs of Santiago Notes:
 * Shower in the dark
 * Trying to buy flowers, clerk shows him flour
 * Don't hold anything back, ideas, emotions
-* An artist whose art is silence, "The plague of our time is the proliferation of mass communication, so he has created a new artistic movement - *shutthefuckupism*. The only relevant theme an artist needs to communicate to this new world order is silence, our innate need for silence and contemplation, at more than any other time in history. So he's taken a vow of silence."
+* An artist whose art is silence, "The plague of our time is the proliferation of mass communication, so he has created a new artistic movement - *shutthefuckupism*. The only relevant theme an artist needs to communicate to this new world order is silence, our innate need for silence and contemplation, at more than any other time in history. So he's taken a vow of silence. He's on all the social media sites, Facebook, Twitter, Instagram, SnapChat. You should follow him."
 * Ending: Interview with Government Agent (female), discussion with psychiatrist, hotel room, restaurant, park - the beautiful surroundings, lying under the treetops, sunlight through the leaves, dogs sleeping in the sun, a feeling of sublime gratitude at being alive, unspoken but unmistaken.
 
 == OUTLINE
@@ -58,7 +58,6 @@ Second Half: Opens with Interrogation. Says they found him in park. Says he knew
 
 
 
-Day One:
+Daily Notes:
 
-Airport:
-Walking down the cavernous empty space in the dead of morning, dark outside, lights, sleepwalking people, a wide opening with a  line of people a mile long, pulmonary embolism, balding guy, cannot understand the man (expects he would speak english), does not have ID, panics, has forgotten his bag somewhere, runs back frantically, he eventually finds it in the bathroom, a young kid going through it, he roughly pushes him into the wall without thinking, his heart pounding, he takes a xanax, goes back, is through for a visit, enters the section with baggage, is sniffed by a guard dog, find cheeze its, medicine, nothing else. He leaves the airport, a row of taxis, one of them speaks english, he gets in that cab, says take me to the hotel rivera. On the way he sees the mountains and the city, imagines he is on the mountain top, in the snow. Comes back, pulls out a photo of a young woman and looks at it.
+He waits until 1830 and paces around, wonders if he should return to the hotel room. He asks the barista if he has seen Constanza, showing him the photograph. The barista nods yes and pulls out the store tablet. He looks something up and then shows Will it is a famous Chilean singer. Will takes the tablet and compares the photographs. He types her name into Google and looks at more photos, eventually finds the exact photo. He hands the tablet back to the barista and walks out. By then there is traffic from people going home. He wanders down the street, through vendors trying to sell him things, the photograph in his hand. He rips it up and throws it in the trash. He walks back to his hotel room, foregoes the metro, and eventually arrives. By then it is 19:30 and the sun is going down. He goes to his room, stands in the silence of it, but finds it unbearable. He gets online and writes Constanza an email, sending her a link to the actress. Then he walks out, keeps walking to Bellavista. Passes a park where people are kissing, where dogs are playing. Plaza Italia. Comes to an open area with a gigantic screen. They are showing a football game, Chile vs Brazil. There
