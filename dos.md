@@ -247,3 +247,158 @@ The baristas looked at him and then a younger guy ran in back and brought back a
 Will handed back the tablet to the barista and walked out into the street. The crowds had thinned and the square was silent for the moment, a distant honking. He walked in the direction he thought his hotel was in but did not consult the map. Before he realized it he was looking at the Pedro De Valdivia metro entrance but passed it by. He felt like he needed to breath in the cool evening air and couldn't conceive of going down where he had no air to breathe. He passed more restaurants but was no longer hungry. A sick, hollow feeling in his stomach replaced the hunger. A few dogs in a pack hurried past as if they were headed somewhere important, then turned a corner onto a side street. Will followed them just to have something outside his own thoughts to focus on. The lead dog was larger than the rest and wore a tattered vest of some kind. It looked warm.
 
 The dogs came to a restaurant called the Hotel California, where the smell of grilled meat and the sound of clinking mugs of beer and loud music swirled through the street outside. The dogs ducked into a small space between the restaurant and disappeared. Will stopped at the entrance and looked inside. There was a game on the big screen TV and people laughing and smoking at the bar. Upstairs he saw a couple cuddling against the window.
+
+
+Chapter Three
+
+Will ordered a burger and cerveza from the menu and then stared at the bar top in contemplation. All around him the patrons were having a blast. When the beer came, he drank it down quick, with a Xanax, and then just waited for the numbness to take hold. By the time the burger came he was barely conscious of wolfing it down. It surprised him to see the clean plate in front of him. He let out a deep belch and and held the empty mug up to the bartender. By the middle of the second round  he had begun watching the game with the other patrons. It was a soccer game, between who he couldn't say, but one of them had to be Chile based on the reactions. Their energy was infectious and before long Will was cheering along with them. He even gave out a few high fives as the heaviness of the sedative took effect. He grinned at nothing.
+
+At some point he felt the presence of someone over his shoulder. It was a man, leaning far over the bar, waving to the bartender.
+
+"No, no man, he won't respond to that shit," Will said, "You gotta do it like this."
+
+Will took the last swig from the mug and slammed it down to the inside edge of the bar. The bartender looked up, made eye contact with Will, who waved him over. When the bartender came over, he gestured to the man, who smiled.
+
+"Quattro tequila shots, señor. Got Patrõn?"
+
+"Si, quattro Patrõn?"
+
+"Yes indeed, señor bartender."
+
+Will looked up at the man for the first time. He was tall, shoulder-length brown hair, clearly from the States.
+
+"Wait," Will stammered, "Are you American?"
+
+"Ben," the man held out his hand, "we have a party going on in the back, bunch of expats, if you care to join?"
+
+Will shook his hand, and when the shots came up Ben asked for one more and then he and Will walked back through the restaurant. As he arose the room spun a little and Will held onto the bar to steady himself. Each room they went through was painted a different bright color, yellow, blue, then red. Ben rounded the corner next to the bathrooms and they entered an open space with plants, bench seats and a dart board on the end.
+
+Ben walked over to a small group next to the dartboard. They all looked up hazily, as if they had been well drunk for some time.
+
+"Fulbrights. Will," Ben introduced, setting the tray of drinks down on a small table between them, "Will. the Fulbrights of Chile in all their glory."
+
+"Are you guys related then?"
+
+"In what sense?" a nerdy fellow at the dartboard asked. He pulled all the darts from the board and walked back to the taped line a few feet away.
+
+Ben said, "Have you never heard of the Fulbright Scholarship Program?"
+
+Ben distributed the shots among the group, who seemed to come alive at the prospect of another round of shots. He handed Will a shot last. They nodded to one another and downed the drinks. Will's head spun as he slung his head back. He followed the tequila with a slice of lemon and smacked his lips. Everyone gave an approving shout.
+
+"Oh, I think I have heard of it. Wasn't Bill Clinton a Fulbright Scholar? What do you do?"
+
+An attractive girl with long hair approached him and held out her hand.
+
+"Nice to meet you. I'm Janette," she said, "Fulbrights are an international exchange program, you apply for it with an idea of somewhere you'd like to visit to do research, and if they like your idea they give you money to go do it, basically. It's not that big of a deal."
+
+"No," Ben laughed, "It's totally a big deal. We're really fucking smart and you probably couldn't get in if you tried."
+
+"Asshole!" Janette punched him in the arm.
+
+"So you met me, Janette, and that is Jamie with the glasses, and in the corner is Robert, but we all call him the Silent One."
+
+Will waved to Jamie, who saluted and threw another dart. He looked over to the corner and saw a young guy in a dark coat leaning back in a lounge chair with his eyes shut.
+
+"The silent one?" Will asked, "Does he not talk?"
+
+Jamie walked over and held out his hand. "He doesn't talk actually. He has actually taken a vow of silence for a year, in person, online, everywhere. None of these guys actually knows what he sounds like. I do though."
+
+"I bet he sounds like Barry White," Janette laughed and sat down again.
+
+"I'll never tell," Jamie said.
+
+"That's interesting," Will said, it was all he could say.
+
+"It's not as pretentious as it sounds," Jamie said, "I mean, it's pretentious, but its not complete bullshit. Robert is more of an artist than the rest of us. The rest of us are scientists."
+
+"So the vow is an art project?"
+
+"Kind of. The vow is certainly part of it, but the most interesting part is the social media aspect. Are you at all interested in this? Cause I can stop."
+
+"No," Will said, "I'm interested."
+
+"Well," Jamie began, as if he was used to explaining it, "So first of all, you have to understand the conception of it all. The thesis I suppose. And the thesis is this: The number of plague of our time is the proliferation of mass communication. This is a new phenomena in history, up to now lack of information has always been the problem. Now our problem is so much information that it becomes chaos, noise, distraction. And so, since the responsibility of the artist in a society is to intuit its problems and manifest the appropriate response, Robert has consciously created a new artistic movement."
+
+Robert paused for effect. 
+
+Ben grinned, "Wait for it."
+
+"Shutthefuckupism," Ben said, "The art of complete and utter silence. So this is where the vow of silence comes in, but the coolest part is that it's not just in person. He's on all the social media sites, Facebook, Twitter, Instagram, SnapChat. He posts silence and responds to other social media utterances with silence. It's kind of amazing. He has thousands of followers. You should follow him."
+
+At that point Robert raised his arm and gave a thumbs up and then went back to doing whatever he was doing.
+
+"So," Ben said, "who's up for a game of darts?"
+
+"I am," Janette said.
+
+"I sir," Jamie said.
+
+"Sure," Will said.
+
+"But you know," Jamie lifted a finger. "It would be extra special if we had another round of shots. Who's with me?"
+
+They all were and each gave Jamie some cash for another round. Will pitched in a few thousand pesos. Jamie went off towards the bar and the rest lined up behind the dart board line. They took turns tossing darts, none sticking, no one keeping count. When all the darts were on the floor, then someone would pick them up, carry them back, and they would start again.
+
+"So Will," Ben asked, "What brings you to Chile? Are you a student?"
+
+"No," Will said, "I haven't been a student for a long time. No, I'm not sure why I'm here. It's all fucked up."
+
+"What?" Janette said, grabbing Will by the arm, "Now you have to tell us. Tell us!"
+
+"It was a girl."
+
+"That old chestnut?" Ben winked.
+
+"Aww," Janette said, "so you came down here to meet your true love? How did you meet her?"
+
+Jamie came back with the tray of drinks. He handed them out and they all clinked glasses.
+
+"To true love," Janette said.
+
+"Wait, what did I miss?" Jamie asked, "I feel like I missed something. Are you and Ben getting married?"
+
+"No," Ben blushed, "Will came to Chile for a girl. We haven't heard the whole story yet."
+
+"There's not much to tell really. It's kind of embarrassing to be honest. I met her online and we talked for a few weeks, like everyday, and somehow it came up that I should come see her, and the other day I said fuck it, and bought a ticket."
+
+"Fucking killer man. Kudos," Jamie said.
+
+"So where is she?" Ben asked.
+
+"Well, I just flew in this morning, and we were supposed to meet up at the Juan Valdez down the street. But, she didn't show at the time we agreed, and then there was this picture."
+
+Will pulled the photograph from his back pocket, now wadded up, and showed it to them.
+
+"Cute," Ben said.
+
+"She's really pretty," Janette said.
+
+"I know, but the only thing is its not her. Its some Chilean pop singer, named Ana Tijoux. The baristas showed me there at the coffee shop."
+
+"Oh my god!" Janette gasped.
+
+"Dude," Jamie said, "that is the mother of all catfishes! Holy shit!"
+
+"So what happened then?" Ben asked, genuinely concerned.
+
+"Nothing. I mean, it just happened maybe thirty minutes ago. I came directly over here from there."
+
+"You need to call her!" Janette shouted, "I wonder who she really is."
+
+"I can't call her, don't know her number. Just have email."
+
+"Well, email her then. Say, who the fuck are you, bitch?" Janette was upset.
+
+Jamie pulled out his phone and opened the browser. "You say you can email her, here use my phone, send her an email. This is like a mystery. You just have to see her, find out who she really is."
+
+Will took the phone and signed in to his Gmail. He saw the last email from Constanza (or whoever) and responded with a simple message.
+
+Who are you really? I would like to meet you. D
+
+He hit send, handed the phone back to Jamie, and told the others what he sent.
+
+"That's good man," Jamie agreed, "Direct and to the point."
+
+They played another few rounds of darts and had another couple rounds of shots.
+
+

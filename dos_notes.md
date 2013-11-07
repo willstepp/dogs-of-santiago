@@ -22,10 +22,10 @@ Day One (25000):
 Airport
 Hotel
 Coffee Shop
-Market
+California Cantina
 Outdoor Football Game
 Riots with Carabineros
-Bar
+Pubcrawl
 Nightclub
 Hotel
 
@@ -60,4 +60,15 @@ Second Half: Opens with Interrogation. Says they found him in park. Says he knew
 
 Daily Notes:
 
-He waits until 1830 and paces around, wonders if he should return to the hotel room. He asks the barista if he has seen Constanza, showing him the photograph. The barista nods yes and pulls out the store tablet. He looks something up and then shows Will it is a famous Chilean singer. Will takes the tablet and compares the photographs. He types her name into Google and looks at more photos, eventually finds the exact photo. He hands the tablet back to the barista and walks out. By then there is traffic from people going home. He wanders down the street, through vendors trying to sell him things, the photograph in his hand. He rips it up and throws it in the trash. He walks back to his hotel room, foregoes the metro, and eventually arrives. By then it is 19:30 and the sun is going down. He goes to his room, stands in the silence of it, but finds it unbearable. He gets online and writes Constanza an email, sending her a link to the actress. Then he walks out, keeps walking to Bellavista. Passes a park where people are kissing, where dogs are playing. Plaza Italia. Comes to an open area with a gigantic screen. They are showing a football game, Chile vs Brazil. There
+What is purpose of Fullbright scholar scene:
+
+1) Establish Perros de Santiago, fringe political group
+2) Establish anti-establishment thought process of MC
+3) Start escalating drunken night (shots, pot, xanax)
+4) Introduce Ben, who will act as his Virgil for the night, "You are on fire tonight!"
+
+He walks into the California Cantina, orders a burger and a beer. Sitting there he gets caught up in the game. A man comes to the bar and leans over him to order a round of shots, Petron. He asks Will if he is American. Introduces himself as Ben. He is with a group of American students in the back, care to join? Will agrees and goes to the back with Ben. He is introduced to a group of Fullbright scholars, drunk. Ben, Jamie, Tristan, and Carlos. They are meeting up and are playing a game. Will joins in. The conversation drifts to the Santiago Dogs, privilege, the importance of action. They play darts and Jamie puts up the photo of the girl, they throw darts at it. She gives him advice about what to write her. He agrees. @ShutTheFuckUpIsm
+
+Ben wants to go to to Plaza Italia, to watch the game on the giant screen, this is what starts the concern for the Perros de Santiago, a conversation of who they are, what they believe, are about. He gets online and writes Constanza an email, sending her a link to the actress. Then he walks out, keeps walking to Bellavista. Passes a park where people are kissing, where dogs are playing. Plaza Italia. Comes to an open area with a gigantic screen. They are showing a football game, Chile vs Brazil. There
+
+He walks back to his hotel room, foregoes the metro, and eventually arrives. By then it is 19:30 and the sun is going down. He goes to his room, stands in the silence of it, but finds it unbearable.
