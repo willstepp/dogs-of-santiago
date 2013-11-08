@@ -21,13 +21,13 @@ If he focused on the breathing it wasn't so bad and after a few minutes he could
 
 In front of him was a balding man. He was with an attractive woman, blond, shapely. He wondered where they were from and thought about asking them, but decided it would be too awkward to keep up the conversation, too much trouble as he really didn't want to talk to anybody.
 
-"Excuse me," he spoke to the blond, a little too enthusiastically.
+"Excuse me," he tapped the blonde on the shoulder.
 
-"What do you need?" said the man. He put himself between the girl and the man. He sounded German, or Scandinavian.
+"What do you need?" said the man. He put himself between the girl and the man and looked down. His accent was German, perhaps Scandinavian.
 
 "What time is it?"
 
-The German pointed to a clock on the wall overhead and turned back around. He stared at his bald head and thought of his own thinning crown. One day his hair would be as bald as this guy's, for sure. The only difference was he would look ridiculous, this guy wore it well. He wondered if the girl had been with him before he was bald, or after. If only you could ask those kinds of questions. Scanning the rest of the crowd it will clear there were people from all over. By far the majority looked South American, but there were a lot of Europeans. Some Americans maybe, maybe Canadian. He kept his eye on an attractive woman a few bends ahead. Ever so often they would cross paths and he would briefly make eye contact. He smiled at her but she did not smile back.
+The German pointed to a clock on the wall overhead and turned back around. He stared at his bald head and thought of his own thinning crown. One day his hair would be as bald as this guy's, for sure. The only difference was he would look ridiculous, and this guy wore it well. He wondered if the girl had been with him before he was bald, or after. If only you could ask those kinds of questions. Scanning the rest of the crowd it will clear there were people from all over. By far the majority looked South American, but there were a lot of Europeans. Some Americans maybe, maybe Canadian. He kept his eye on an attractive woman a few bends ahead. Ever so often they would cross paths and he would briefly make eye contact. He smiled at her but she did not smile back.
 
 At last he reached the end of the line where there was a small digital sign with red numbers, indicating which kiosk the next person in line should go to. His number flashed fifteen and he walked down to the end, where a customs officer in a dark gray uniform nodded to him. The officer seemed irritated and held out his hand. The man suddenly panicked when he realized he needed the customs paperwork he had filled out on the plane, as well as identification. He was not focused. He took in a deep breath and reached in his pocket but the papers were not there. He reached down for his duffle but the duffle was not there.
 
@@ -154,15 +154,15 @@ The room was clean and small. It had two twin beds with a tiny shelf between the
 
 The alarm woke him at 3 and he rose and immediately opened his laptop. It still had an hour or so. He found the wifi and connected, no password required. He opened his email and reread the last email from Constanza:
 
-Hey babe, glad you decided to come! You so crazy (in a good way ;-) I know you won't have phone when you get here, but maybe send an email from the hotel? If I don't hear from you let's just meet up at Juan Valdez in Providencia at 1730. Can't wait to meet you in person finally, so we can have one of our deep conversations face to face. C
+	Hey! Glad you decided to come! You so crazy (in a good way ;-) 	I know you won't have phone when you get here, but maybe send 		an email from the hotel? If I don't hear from you let's just 		meet up at Juan Valdez in Providencia at 1730. Can't wait to 		meet you in person finally, so we can have one of our deep 			conversations face to face. C
 
-PS - I'm super nervous! xoxoxo
+	PS - I'm super nervous! xoxoxo
 
 He replied:
 
-The eagle has landed! In Chile as we speak (write). I told you I would make it happen. This is just to let you know I'm here and can make it to Juan Valdez by 1730 no problem. I will see you there, D
+	The eagle has landed! In Chile as we speak (write). I told you 	I would make it happen. This is just to let you know I'm here 		and can make it to Juan Valdez by 1730 no problem. I will see 		you there, D
 
-PS - I'm nervous too! @-->---
+	PS - I'm nervous too! @-->---
 
 He undressed, grabbed his toiletries bag, his travel towel, and went to the bathroom. As he flipped the light switch a loud flash popped and the bathroom went dark. He fumbled around for the shower and eventually figured out a medium temperature. He got in the shower and bathed in the dim light that came in from outside. After, he pulled out his nice jeans and a dark striped button up, white t-shirt, his nice leather shoes. Fortunately there was a mirror in his toiletries bag, so he used that to floss his teeth and fix his hair.
 
@@ -319,11 +319,11 @@ Jamie walked over and held out his hand. "He doesn't talk actually. He has actua
 
 "Well," Jamie began, as if he was used to explaining it, "So first of all, you have to understand the conception of it all. The thesis I suppose. And the thesis is this: The number of plague of our time is the proliferation of mass communication. This is a new phenomena in history, up to now lack of information has always been the problem. Now our problem is so much information that it becomes chaos, noise, distraction. And so, since the responsibility of the artist in a society is to intuit its problems and manifest the appropriate response, Robert has consciously created a new artistic movement."
 
-Robert paused for effect. 
+Jamie paused for effect. 
 
 Ben grinned, "Wait for it."
 
-"Shutthefuckupism," Ben said, "The art of complete and utter silence. So this is where the vow of silence comes in, but the coolest part is that it's not just in person. He's on all the social media sites, Facebook, Twitter, Instagram, SnapChat. He posts silence and responds to other social media utterances with silence. It's kind of amazing. He has thousands of followers. You should follow him."
+"Shutthefuckupism," Jamie said, "The art of complete and utter silence. So this is where the vow of silence comes in, but the coolest part is that it's not just in person. He's on all the social media sites, Facebook, Twitter, Instagram, SnapChat. He posts silence and responds to other social media utterances with silence. It's kind of amazing. He has thousands of followers. You should follow him."
 
 At that point Robert raised his arm and gave a thumbs up and then went back to doing whatever he was doing.
 
@@ -331,7 +331,7 @@ At that point Robert raised his arm and gave a thumbs up and then went back to d
 
 "I am," Janette said.
 
-"I sir," Jamie said.
+"I, sir," Jamie said.
 
 "Sure," Will said.
 
@@ -391,14 +391,130 @@ Will pulled the photograph from his back pocket, now wadded up, and showed it to
 
 Jamie pulled out his phone and opened the browser. "You say you can email her, here use my phone, send her an email. This is like a mystery. You just have to see her, find out who she really is."
 
-Will took the phone and signed in to his Gmail. He saw the last email from Constanza (or whoever) and responded with a simple message.
+Will took the phone and signed in to his Gmail. He found the last email from Constanza and responded with a simple message.
 
-Who are you really? I would like to meet you. D
+	Who are you really? I would like to meet you. D
 
 He hit send, handed the phone back to Jamie, and told the others what he sent.
 
 "That's good man," Jamie agreed, "Direct and to the point."
 
-They played another few rounds of darts and had another couple rounds of shots.
+They played another few rounds of darts and had another couple rounds of shots. Everyone was drunk by this point, Will had to slow down after the last round of shots, because combined with the Xanax, he found he could barely keep his eyes opened. They all sat around on the couches, the darts spread haphazard on the floor in front of them. Robert was asleep. Ben and Janette sat close together, but not touching. Jamie was looking at his phone. Nobody was talking.
 
+"Well," Ben said, rising slowly, "whose up for a walk to Plaza Italia!"
 
+"Taxi maybe," Jamie looked up from his phone.
+
+"I'm not going anywhere near that place," Janette argued, "Not tonight. The Carabineros will be all over with those protesters out. The metros shut down at eight, I heard somebody talking about it earlier."
+
+"But the gigantic screen, the game! I can't miss it before I go back to the Atacama, Jamie, you in? We can taxi it, I don't care. I just want to go, man. Come on!"
+
+Jamie put down his phone.
+
+"Wait a minute, what is Janette talking about Carabineros? Why will they be out there?" 
+
+"Because," Janette explained, "those protesters are going to be out in the Plaza tonight."
+
+"The Dogs?" Jamie asked, concerned, "Those guys?"
+
+"Uh, si señor, los Perros de Santiago. The same ones who smashed all those windows down Moneda last month and set fires in the streets."
+
+"Okay, I'm not going then. Don't feel like dying tonight, thanks."
+
+"Wait," Ben argued, "there's gonna be hundreds of people out there watching the game on the gigantic screen. If they are okay with it, what's the big deal?"
+
+"They're not gringos." Janette argued. Ben thought that was a good point.
+
+Will had been listening and finally his curiosity got the better of him, "What are you guys talking about? I am totally lost."
+
+"Oh, sorry Will," Jamie explained, "You just picked the absolute worse time to come to Santiago since Pinochet."
+
+Janette picked up, "There's this group, Los Perros de Santiago, the Dogs of Santiago, they started as a student political organization a year or so ago, holding organized protests around the inequalities of the Chilean school system, where those with connections get all the opportunities, while those without the connections are left out in the cold. It made international news."
+
+Ben sat back down, explaining further, "It was a good thing actually. Got people talking, thinking. They would not relent in their message. They shut down the schools, barricaded them with makeshift walls of desks."
+
+"All so people without a voice could get an education?" Will asked.
+
+"Yeah, basically," Janette said, "It was an idealistic crusade at its core. And it could have been successful, people in the government were starting to listen, starting to agree with them.  Talks were happening. But then it spiraled out of control."
+
+"What happened?"
+
+"The message got bigger. See, it started with a very specific goal in mind, and all the anger and outrage was directed at righting this particular wrong, the inequality of the school system. But, the leader of the Dogs started injecting all this anti-capitalist propaganda into the protests."
+
+"And the students ate it up," Ben said.
+
+"Well, yeah," Jamie said, "because a lot of it is true. It's all connected, that's all that happened. As they started looking into the heart of the issues, they could see it all stemmed from a concerted effort by the wealthy minority of the country to foster a more American capitalist social structure into place. Chile is not a wealthy country, relatively speaking. They have the copper mines and a few other agriculture exports, but they have always been a somewhat second-world country. And of course, the folks on the hill want to change that. They see it as a kind of patriotism actually."
+
+"So what happened?" Will asked, "What does all that have to do with a soccer game on a gigantic screen in Plaza Whatever?"
+
+"Plaza Italia," Ben corrected, "Well, like we were saying, it started with protests. You can't really imagine these protests, they were officially sanctioned and scheduled. The government said, you can protest here and here, from this time to this time. So the students would comply. They would say, okay, everybody show up at Park Bustamante at 1800 on Friday and we will protest. So everybody would show up, and they would get angry and speechify and shout, and the carabineros would be there, on standby at the fringes, and then it would be over and everyone would go out and party."
+
+"Fucking weird man," Jamie said, "I remember the first time I saw it. I just got here, before the Fulbright program, staying at hostels. One day I was walking down Moneda, most of these protests happen in the business district for obvious reasons, and there was this tension in the air. The streets were empty. You could cut the tension with a knife, pardon the cliche but that's what it was like, man, almost a tangible thing. And I didn't know what the fuck was going on, just walking down the street like an asshole, with my head up my ass."
+
+"Sort of like always," Janette laughed.
+
+"Fuck off, bitch," Jamie winked, "so I came to this area, this wide open area, the square with the capital building, all this manicured landscaping and statues, marble. And there were about a hundred college students, shouting and raising their hands. They had signs. There were carabineros on horseback, carabineros wearing riot gear, with the shields and everything. And it seemed like a single wrong look could set the whole thing off like a stick of dynamite."
+
+"It really is like that," Ben agreed.
+
+"The one detail I always remember is that as I stood in this potentially violent situation with dozens of angry people, I turn around to walk back and on the other side of the street is this frail old lady, carrying groceries, as if was just another day. She didn't seem to notice. It calmed me somehow."
+
+"You haven't answered my question yet," Will observed, "Why the big deal tonight?"
+
+"Well," Janette picked up, "as the protests became more anti-capitalist and philosophical in nature, they naturally became more angry because there was no way to directly answer the issue, not in a tangible way. So things escalated. Then one day, back in the summer, the Dogs held a protest outside the sanctioned place and time. This really made people uneasy. For the first time they called out tanks and armored trucks. The government brought out the pepper spray, water canons, billy sticks. Then it happened. Some kid threw a brick into a crowd of carabineros and hit one of them in the head. There was an all-out brawl and needless to say the police beat the kids down. They were unprepared for anything like that. This did not make international news, for obvious reasons. The powers that be wanted to keep it secret. So, that's how it happened. After that there were no talks. Protests happened on short notice, promoted on Twitter and other social media. The government scrambles each time and violence is the norm rather than a feeling in the air. The kids regularly set fires in the streets. Destroy property. And the carabineros blast them with water cannons, pepper spray, and beat them senseless with billy sticks."
+
+"So," Ben said, "now you know. There is a game in Plaza Italia tonight and word on the streets is, the Dogs are gonna be out there too, to get some visibility for their message."
+
+"There's one thing you left out," Jamie added.
+
+"What's that?" Ben asked.
+
+"They hate Americans."
+
+"Oh yeah," Ben said to Will, "They hate our guts, being the spoiled offspring of the capitalist system."
+
+Will sat in silence and processed what they had just told him.
+
+"So," Ben said at last, "you up for it?"
+
+"Why are they called The Dogs of Santiago?" Will asked.
+
+"You just got here," Janette observed, "but haven't you seen the stray dogs all over the place? They're everywhere in the city. People just tolerate them here. They ignore them for the most part, but some feed them and make sure they have some warmth during the winter. You may have seen some with these vests on. They are named after those stray animals of the city, a metaphor. For what exactly I'm not sure."
+
+"It sounds cool, basically," Jamie added.
+
+They all laughed. Finally Will said, "Fuck it, I'm in. I could use some exercise."
+
+Ben jumped up and slapped Will on the back.
+
+"Let's do it, man. We don't have anything to worry about, trust me. It's gonna be an awesome game. Wait till you see this screen. It's fucking huge."
+
+"Gigantic even," Jamie added.
+
+Jamie walked over and woke up The Silent One. Ben grabbed their coats and handed them out. Will stood up and realized he was much too drunk to make any intelligent decision about whether to go into a potential violent situation. They headed out the back door, through the empty courtyard and stood on the street, where a few cabs were waiting. Janette waved to one of them and it immediately zipped up to the curb, smoke curling out of its tailpipe.
+
+"It is fucking cold out here," Jamie observed. He threw on his peacoat and opened the cab door. Janette climbed in, then Jamie, then the Silent One. When the door was shut she rolled down the window.
+
+"Hey, you guys be careful. Stay in the soccer crowds. Will, it was nice to meet you."
+
+"Nice to meet you too."
+
+The cab pulled off and turned the corner. Ben lit a cigarette and offered one to Will.
+
+"What is it you do here?" Will asked.
+
+"I'm an astronomer," Ben answered.
+
+"You don't seem like an astronomer."
+
+Ben laughed.
+
+"What do I seem like then?"
+
+"Cab driver," Will offered.
+
+"Nice," Ben said, "I could do that I suppose. Feel like hoofin it for awhile?"
+
+"Sure," Will said.
+
+The both of them rounded the corner down Pedro De Valdivia towards Plaza Italia.

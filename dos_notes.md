@@ -67,7 +67,9 @@ What is purpose of Fullbright scholar scene:
 3) Start escalating drunken night (shots, pot, xanax)
 4) Introduce Ben, who will act as his Virgil for the night, "You are on fire tonight!"
 
-He walks into the California Cantina, orders a burger and a beer. Sitting there he gets caught up in the game. A man comes to the bar and leans over him to order a round of shots, Petron. He asks Will if he is American. Introduces himself as Ben. He is with a group of American students in the back, care to join? Will agrees and goes to the back with Ben. He is introduced to a group of Fullbright scholars, drunk. Ben, Jamie, Tristan, and Carlos. They are meeting up and are playing a game. Will joins in. The conversation drifts to the Santiago Dogs, privilege, the importance of action. They play darts and Jamie puts up the photo of the girl, they throw darts at it. She gives him advice about what to write her. He agrees. @ShutTheFuckUpIsm
+"El gato encima d una mesa!"
+
+The conversation drifts to the Santiago Dogs, privilege, the importance of action.
 
 Ben wants to go to to Plaza Italia, to watch the game on the giant screen, this is what starts the concern for the Perros de Santiago, a conversation of who they are, what they believe, are about. He gets online and writes Constanza an email, sending her a link to the actress. Then he walks out, keeps walking to Bellavista. Passes a park where people are kissing, where dogs are playing. Plaza Italia. Comes to an open area with a gigantic screen. They are showing a football game, Chile vs Brazil. There
 
