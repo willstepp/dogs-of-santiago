@@ -16,6 +16,7 @@ The Dogs of Santiago Notes:
 * Don't hold anything back, ideas, emotions
 * An artist whose art is silence, "The plague of our time is the proliferation of mass communication, so he has created a new artistic movement - *shutthefuckupism*. The only relevant theme an artist needs to communicate to this new world order is silence, our innate need for silence and contemplation, at more than any other time in history. So he's taken a vow of silence. He's on all the social media sites, Facebook, Twitter, Instagram, SnapChat. You should follow him."
 * Ending: Interview with Government Agent (female), discussion with psychiatrist, hotel room, restaurant, park - the beautiful surroundings, lying under the treetops, sunlight through the leaves, dogs sleeping in the sun, a feeling of sublime gratitude at being alive, unspoken but unmistaken.
+* Sees someone he thinks is Ben, does not recognize him
 
 == OUTLINE
 Day One (25000):
@@ -25,7 +26,6 @@ Coffee Shop
 California Cantina
 Outdoor Football Game
 Riots with Carabineros
-Pubcrawl
 Nightclub
 Hotel
 
@@ -74,3 +74,17 @@ The conversation drifts to the Santiago Dogs, privilege, the importance of actio
 Ben wants to go to to Plaza Italia, to watch the game on the giant screen, this is what starts the concern for the Perros de Santiago, a conversation of who they are, what they believe, are about. He gets online and writes Constanza an email, sending her a link to the actress. Then he walks out, keeps walking to Bellavista. Passes a park where people are kissing, where dogs are playing. Plaza Italia. Comes to an open area with a gigantic screen. They are showing a football game, Chile vs Brazil. There
 
 He walks back to his hotel room, foregoes the metro, and eventually arrives. By then it is 19:30 and the sun is going down. He goes to his room, stands in the silence of it, but finds it unbearable.
+
+3300
+1700 words in the conversation, regarding TBD
+
+5000 (game + riot)
+1700 walking
+1700 game
+1700 riot
+
+5000 (bellavista + valpon 9 + hotel)
+
+Something happens to Will and Ben on the way, just a holdup with a knife, no beating, Ben's wallet is stolen. Will's Xanax is stolen, but they don't find his wallet. 
+
+Then later, in the shanty town, its just a beating, but they take his wallet as well, break his ribs and wrist.

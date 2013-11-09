@@ -246,12 +246,14 @@ The baristas looked at him and then a younger guy ran in back and brought back a
 
 Will handed back the tablet to the barista and walked out into the street. The crowds had thinned and the square was silent for the moment, a distant honking. He walked in the direction he thought his hotel was in but did not consult the map. Before he realized it he was looking at the Pedro De Valdivia metro entrance but passed it by. He felt like he needed to breath in the cool evening air and couldn't conceive of going down where he had no air to breathe. He passed more restaurants but was no longer hungry. A sick, hollow feeling in his stomach replaced the hunger. A few dogs in a pack hurried past as if they were headed somewhere important, then turned a corner onto a side street. Will followed them just to have something outside his own thoughts to focus on. The lead dog was larger than the rest and wore a tattered vest of some kind. It looked warm.
 
-The dogs came to a restaurant called the Hotel California, where the smell of grilled meat and the sound of clinking mugs of beer and loud music swirled through the street outside. The dogs ducked into a small space between the restaurant and disappeared. Will stopped at the entrance and looked inside. There was a game on the big screen TV and people laughing and smoking at the bar. Upstairs he saw a couple cuddling against the window.
+The dogs came to a restaurant called the Hotel California, where the smell of grilled meat and the sound of clinking mugs of beer and loud music swirled through the street outside. The dogs ducked into a small space between the restaurant and disappeared. Will stopped at the entrance and looked inside. There was a game on the big screen TV and people laughing and smoking at the bar. Upstairs he saw a couple cuddling against the window. He went inside.
 
 
 Chapter Three
 
-Will ordered a burger and cerveza from the menu and then stared at the bar top in contemplation. All around him the patrons were having a blast. When the beer came, he drank it down quick, with a Xanax, and then just waited for the numbness to take hold. By the time the burger came he was barely conscious of wolfing it down. It surprised him to see the clean plate in front of him. He let out a deep belch and and held the empty mug up to the bartender. By the middle of the second round  he had begun watching the game with the other patrons. It was a soccer game, between who he couldn't say, but one of them had to be Chile based on the reactions. Their energy was infectious and before long Will was cheering along with them. He even gave out a few high fives as the heaviness of the sedative took effect. He grinned at nothing.
+Will ordered a burger and cerveza from the menu and then stared at the bar top in contemplation. All around him the patrons were having a good time. When the beer came, he drank it down quick, with a Xanax, and then just waited for the numbness to take hold. By the time the burger came he was barely conscious of wolfing it down. It surprised him to see the clean plate in front of him. He let out a deep belch and and held the empty mug up to the bartender. The bartender nodded and filled his mug. He thought about ordering another burger, just for the hell of it, but decided to drink the calories instead.
+
+By the middle of the second round he had begun watching the game with the other patrons. It was a soccer game, between who he couldn't say, but one of them had to be Chile based on the reactions. Each time one team made a goal the entire place shouted in unison. Their energy was infectious. Before long Will was shouting along with them. He even gave out a few high fives as the heaviness of the sedative took effect and made everything better. He grinned at nothing and thought about nothing except what was in front of him. A bowl of nuts. He ate a couple.
 
 At some point he felt the presence of someone over his shoulder. It was a man, leaning far over the bar, waving to the bartender.
 
@@ -275,7 +277,7 @@ Will shook his hand, and when the shots came up Ben asked for one more and then 
 
 Ben walked over to a small group next to the dartboard. They all looked up hazily, as if they had been well drunk for some time.
 
-"Fulbrights. Will," Ben introduced, setting the tray of drinks down on a small table between them, "Will. the Fulbrights of Chile in all their glory."
+"Fulbrights. Will," Ben introduced, setting the tray of drinks down on a small table between them, "Will. the Fulbrights of Chile in all their majesty."
 
 "Are you guys related then?"
 
@@ -289,27 +291,27 @@ Ben distributed the shots among the group, who seemed to come alive at the prosp
 
 An attractive girl with long hair approached him and held out her hand.
 
-"Nice to meet you. I'm Janette," she said, "Fulbrights are an international exchange program, you apply for it with an idea of somewhere you'd like to visit to do research, and if they like your idea they give you money to go do it, basically. It's not that big of a deal."
+"Nice to meet you. I'm Janette," she said, "Fulbright is an international exchange program for students, you apply for it with an idea of somewhere you'd like to visit to do research, and if they like your idea they give you money to go do it, basically. It's not that big of a deal."
 
 "No," Ben laughed, "It's totally a big deal. We're really fucking smart and you probably couldn't get in if you tried."
 
-"Asshole!" Janette punched him in the arm.
+"Whatever," Janette punched him in the arm.
 
-"So you met me, Janette, and that is Jamie with the glasses, and in the corner is Robert, but we all call him the Silent One."
+"So you met me, and that is Jamie over there with the glasses, and that's Robert in the corner, but we call him the Silent One."
 
 Will waved to Jamie, who saluted and threw another dart. He looked over to the corner and saw a young guy in a dark coat leaning back in a lounge chair with his eyes shut.
 
 "The silent one?" Will asked, "Does he not talk?"
 
-Jamie walked over and held out his hand. "He doesn't talk actually. He has actually taken a vow of silence for a year, in person, online, everywhere. None of these guys actually knows what he sounds like. I do though."
+Jamie walked over and held out his hand. "He doesn't talk actually. He has taken a vow of silence for a year, in person, online, everywhere. None of these guys actually knows what he sounds like. I do though."
 
 "I bet he sounds like Barry White," Janette laughed and sat down again.
 
 "I'll never tell," Jamie said.
 
-"That's interesting," Will said, it was all he could say.
+"Interesting."
 
-"It's not as pretentious as it sounds," Jamie said, "I mean, it's pretentious, but its not complete bullshit. Robert is more of an artist than the rest of us. The rest of us are scientists."
+"It's not as pretentious as it sounds," Jamie said, "I mean, it's pretentious, but its not utter bullshit. Robert is more of an artist than the rest of us. The rest of us are scientists."
 
 "So the vow is an art project?"
 
@@ -317,13 +319,13 @@ Jamie walked over and held out his hand. "He doesn't talk actually. He has actua
 
 "No," Will said, "I'm interested."
 
-"Well," Jamie began, as if he was used to explaining it, "So first of all, you have to understand the conception of it all. The thesis I suppose. And the thesis is this: The number of plague of our time is the proliferation of mass communication. This is a new phenomena in history, up to now lack of information has always been the problem. Now our problem is so much information that it becomes chaos, noise, distraction. And so, since the responsibility of the artist in a society is to intuit its problems and manifest the appropriate response, Robert has consciously created a new artistic movement."
+"Well," Jamie began, as if he was used to explaining it, "So first of all, you have to understand the conception of it all. The thesis I suppose. And the thesis is this: The number one of plague of our time is the proliferation of mass communication. This is a new phenomena in history, up to now lack of information has always been the problem. Now our problem is so much information that it becomes chaos, noise, distraction. And so, since the responsibility of the artist in a society is to intuit its problems and manifest the appropriate response, Robert has consciously created a new artistic movement."
 
 Jamie paused for effect. 
 
 Ben grinned, "Wait for it."
 
-"Shutthefuckupism," Jamie said, "The art of complete and utter silence. So this is where the vow of silence comes in, but the coolest part is that it's not just in person. He's on all the social media sites, Facebook, Twitter, Instagram, SnapChat. He posts silence and responds to other social media utterances with silence. It's kind of amazing. He has thousands of followers. You should follow him."
+"It's called Shutthefuckupism," Jamie said, "The art of complete and utter silence. This is where the vow of silence comes in, but the coolest part is that it's not just in person. He's on all the social media sites, Facebook, Twitter, Instagram, SnapChat. He posts silence and responds to other social media utterances with silence. It's kind of amazing. He has thousands of followers. You should follow him."
 
 At that point Robert raised his arm and gave a thumbs up and then went back to doing whatever he was doing.
 
@@ -337,29 +339,159 @@ At that point Robert raised his arm and gave a thumbs up and then went back to d
 
 "But you know," Jamie lifted a finger. "It would be extra special if we had another round of shots. Who's with me?"
 
-They all were and each gave Jamie some cash for another round. Will pitched in a few thousand pesos. Jamie went off towards the bar and the rest lined up behind the dart board line. They took turns tossing darts, none sticking, no one keeping count. When all the darts were on the floor, then someone would pick them up, carry them back, and they would start again.
+They all were and each gave Jamie some cash for another round. Will pitched in a few thousand pesos. Jamie went off towards the bar and the rest lined up behind the dart board line. They took turns tossing darts, none sticking, no one keeping count. When all the darts were on the floor, then someone would pick them up, carry them back, and they would start again. There was a lull in the conversation but as everyone was heavily sedated by that point it was not uncomfortable.
 
-"So Will," Ben asked, "What brings you to Chile? Are you a student?"
+"Janette," Will asked, "so what are you doing with your time in Chile?"
 
-"No," Will said, "I haven't been a student for a long time. No, I'm not sure why I'm here. It's all fucked up."
+She immediately responded as if from memory, "I'm implementing a shortwave radio distribution program among indigenous farming communities of southern Chile."
 
-"What?" Janette said, grabbing Will by the arm, "Now you have to tell us. Tell us!"
+"What?"
 
-"It was a girl."
+"In the forests are communities of farmers going generations back, but currently they have no technology to communicate between themselves, and if they did, it could greatly improve their social well-being in a multitude of ways, primarily preservation of their culture. So myself along with a few others plan to introduce low-technology based communication to the people there as a way to help them see the benefits of inter-community relationships."
+
+"That's pretty cool," Will said, "do they have problems now?"
+
+"Of course," Janette responded, somewhat defensive, "sharing in real-time information regarding the weather, illnesses, tips about crops, not to mention a wider sense of connectedness, not seeing others as a threat but as an extension of your own community. We've already seen good results in a few prototype villages."
+
+"What is the end goal of a program like this?"
+
+"What do you mean?"
+
+"You are introducing new technology to a community, low-grade technology now, and you are seeing good results. Does that mean it will lead to introducing more modern technology later? The Internet, for example?"
+
+"You don't understand, Will. Some of these people haven't even seen a computer. They might understand what it is, but they are a long time from using Twitter."
+
+"I get that, but as you were talking I had a vision of these villages communicating and it seems like eventually they would all merge into one village. I don't see that stopping with shortwave radio. Why would it? Technology doesn't stop. It's like evolution. It keeps developing and adapting. So maybe now they're not on Twitter, but eventually, why not?"
+
+"Then they would be connected to the whole world."
+
+"Well," Janette argued, "that isn't the goal. That would be sad."
+
+"Why sad?"
+
+"Because then there would be a direct line for outside cultural influences to invade the communities. They would lose their individuation."
+
+"You mean kids in the villages listening to Lady Gaga?"
+
+"Superficially, yes. But the whole purpose is to help preserve these ancient traditions. They are slowly dying out. It is a way to help them unite and strengthen those bonds."
+
+"Maybe it is inevitable."
+
+"I hope not," Janette said, "that would be sad."
+
+"You keep using that word," Jamie said, "but that word has no place in evolution, which is what we're talking about really. Technology is part of our evolution as much as an opposable thumb. So, okay, taking this idea in a different direction, are we - I mean modern people - losing our own sense of cultural individuation, from our technology? These days the communication from here to China is a matter of seconds."
+
+"I think we're most definitely seeing a blurring of the lines between cultures," Will agreed.
+
+"But, is that so bad a thing? Why are we any different from those primitive villages? Should our traditions be preserved?"
+
+"I think so," Janette said.
+
+"Now you sound like a segregationist."
+
+"What are you talking about?"
+
+"This conversation is getting way too philosophical, that can't go anywhere good." Ben interjected.
+
+"I don't think so," Jamie said, "it's interesting. We seem to have this idea that certain traditions should be preserved and shielded from the evils of mass communication, but at the same time there is this idea that mass communication is enabling us to increase community. So, which is it? Is the ideal be one global village or many separate villages? You can't have both."
+
+"I'm lost," Will said, his head reeling from the combination of Xanax and alcohol.
+
+"I'm not a political scientist," Janette said, "We can help those people, and so we are."
+
+"Well, I am a political scientist and I think the global village is inevitable, whether we want it or not, and those traditions of thousands of years will eventually be lost forever. It's happened before, and its happening now, and it will happen. There is a tendency in the universe towards unity."
+
+"Entropy," Ben corrected.
+
+"That's just a semantics. Utter entropy eventually begets homageneity, aka unity."
+
+"Wrong, although that's pretty clever," Ben observed, "Utter entropy would be an infinite number of atoms, all separate, all self-contained, neither depending on or communicating with any other. So, eternal loneliness."
+
+"This conversation is making me sad," Janette said, "let's change the subject. Will, what's your story? Why are you in Chile? Are you a student?"
+
+"Wait," Ben said, "I think its Will's turn to get drinks."
+
+"Will's turn!" Jamie and Janette shouted in unison.
+
+"Okay," Will said, "I'll get the next round. What are we having. More shots?"
+
+"I want a drink drink," Janette said.
+
+"Piscola?"
+
+"Alright, yeah," Janette said.
+
+"Five piscolas, señor Will," Ben said, "that is, if you want one."
+
+"What the heck is a piscola?"
+
+"You'll like it. It's traditional. Try one."
+
+"Okay," Will said.
+
+Will walked back through the dining room on his way back to the bar, but stopped first at the bathrooms, which were painted sky blue with white clouds. He took a piss, then instinctively leaned over and threw up into the toilet. Everything from the day came up. He saw stars and lost his balance momentarily, catching himself on the sink. He wasn't nauseous. Briefly, the old pounding heartbeat back came back and the old dizziness, but then it subsided. He thought about Constanza, about the person she really was. He wondered if he should say anything about it to the Fulbrights. They seemed understanding enough. 
+
+He collected himself and went to the bar. He expected to have trouble with the order but the bartender understood piscola just fine. The crowd next to him had a tray of pita chips and some kind of creamy salsa, so Will pointed that out to the bartender as well and he acknowledged.
+
+When he returned the Fulbrights were back at a game of darts. The Silent One was standing at a door smoking. Will set the tray of drinks down on the table and a waitress followed him with the pita chips and salsa.
+
+"Oh, snacks, awesome!" Jamie said.
+
+Ben and Jamie came over and dipped out some chips. Will offered some to Robert, who walked over and helped himself. He then asked Janette, who was only drinking.
+
+"I don't eat gluten, sorry."
+
+"No problem," Will said, "are you allergic?"
+
+"Not allergic per se, but anytime I eat processed bread I get a lot of congestion for a day or so."
+
+"Bullshit," Jamie said.
+
+"No, its not bullshit, Jamie, how are you an expert on how my body reacts to food?"
+
+"Have you always had this reaction? Even when your mom fed you peanut butter and jelly sandwiches when you were a kid?"
+
+"How should I know?" Janette said. She threw another dart at the board and it stuck to her surprise.
+
+"I'll tell you when it started, it happened when you first heard from some hippie ass nutritionist on youtube that consuming gluten was toxic and saw all these testimonials from whack jobs about the evils of processed food."
+
+"So you think processed food is good for you?"
+
+"I think we should eat as close to nature as possible, but I also don't think eating white bread causes congestion. What about the billions of people who eat white bread everyday and are just fine. I just can't listen to crap like that."
+
+"Why are you being so angry all of a sudden?"
+
+"It's just a pet peeve of mine. All these kind of people are just privileged snobs if you ask me. You'd never see a starving child refusing a slice of white bread because it wasn't as pure as unprocessed food."
+
+"Fuck you," Janette said.
+
+"And what do you think is in that piscola you're drinking? They might use real cane sugar in the cola down here, but its still refined as all get out."
+
+"Whatever man, I'm trying to have a good time tonight, and you're killing my buzz."
+
+Ben walked over to Jamie and whispered into his ear. Jamie nodded and walked to the back of the room where the Silent One had found a new spot.
+
+Will took a drink of the piscola and tried to think of something to break the tension.
+
+"So, you guys want to hear why I'm here?" Will said, "I promise its a good story. It's fucked up to tell you the truth."
+
+"Yes, please Will, let's talk about something fun for a change," Janette said. She grabbed Will by the arm, "Tell us!"
+
+"I am here about a girl."
 
 "That old chestnut?" Ben winked.
 
 "Aww," Janette said, "so you came down here to meet your true love? How did you meet her?"
 
-Jamie came back with the tray of drinks. He handed them out and they all clinked glasses.
+They each clinked their piscolas in a toast.
 
-"To true love," Janette said.
+Jamie came back over, his curiosity piqued.
 
-"Wait, what did I miss?" Jamie asked, "I feel like I missed something. Are you and Ben getting married?"
+"Wait, what did I hear?" Jamie asked, "I feel like I missed something. Are you and Ben getting married?"
 
 "No," Ben blushed, "Will came to Chile for a girl. We haven't heard the whole story yet."
 
-"There's not much to tell really. It's kind of embarrassing to be honest. I met her online and we talked for a few weeks, like everyday, and somehow it came up that I should come see her, and the other day I said fuck it, and bought a ticket."
+"It's kind of embarrassing to be honest. I met her online and we talked for a month or so, like everyday, and somehow it came up that I should come see her, and the other day I said fuck it, and bought a ticket."
 
 "Fucking killer man. Kudos," Jamie said.
 
@@ -377,15 +509,23 @@ Will pulled the photograph from his back pocket, now wadded up, and showed it to
 
 "Oh my god!" Janette gasped.
 
-"Dude," Jamie said, "that is the mother of all catfishes! Holy shit!"
+"Dude," Jamie said, "that is the catfish of all catfishes! Holy shit!"
+
+"What is a catfish?" Janette asked.
+
+"Oh, Janette," Jamie shook his head in mock disappointment. "Have you not been keeping up with your memes. One does not simply not keep up with internet memes."
+
+"Ain't nobody got time for dat!" Ben shouted. Everyone laughed.
+
+"A catfish is when you get to know somebody through Facebook, OkCupid, whatever and they turn out not to be who they say they are. It's from a documentary. I don't know why."
 
 "So what happened then?" Ben asked, genuinely concerned.
 
 "Nothing. I mean, it just happened maybe thirty minutes ago. I came directly over here from there."
 
-"You need to call her!" Janette shouted, "I wonder who she really is."
+"You need to call her right now!" Janette shouted, "I wonder who she is."
 
-"I can't call her, don't know her number. Just have email."
+"I can't call her because I don't have her number. Just email."
 
 "Well, email her then. Say, who the fuck are you, bitch?" Janette was upset.
 
@@ -399,7 +539,9 @@ He hit send, handed the phone back to Jamie, and told the others what he sent.
 
 "That's good man," Jamie agreed, "Direct and to the point."
 
-They played another few rounds of darts and had another couple rounds of shots. Everyone was drunk by this point, Will had to slow down after the last round of shots, because combined with the Xanax, he found he could barely keep his eyes opened. They all sat around on the couches, the darts spread haphazard on the floor in front of them. Robert was asleep. Ben and Janette sat close together, but not touching. Jamie was looking at his phone. Nobody was talking.
+They played another few rounds of darts and had another round of shots. Jamie apologized to Janette and they hugged it out. Everyone was drunk by this point, Will had to slow down after the last round of shots, because combined with the Xanax, he found he could barely keep his eyes opened. 
+
+They all sat around on the couches, the darts spread haphazard on the floor in front of them. The Silent One was asleep. Ben and Janette sat close together, but not touching. Jamie was looking at his phone. Nobody was talking. There was lively music filtering in from somewhere outside, a live band.
 
 "Well," Ben said, rising slowly, "whose up for a walk to Plaza Italia!"
 
@@ -407,7 +549,7 @@ They played another few rounds of darts and had another couple rounds of shots. 
 
 "I'm not going anywhere near that place," Janette argued, "Not tonight. The Carabineros will be all over with those protesters out. The metros shut down at eight, I heard somebody talking about it earlier."
 
-"But the gigantic screen, the game! I can't miss it before I go back to the Atacama, Jamie, you in? We can taxi it, I don't care. I just want to go, man. Come on!"
+"But the gigantic screen, the game! I can't miss it before I go back to the Atacama. Jamie, you in? We can taxi it, I don't care. I just want to go, man. Come on!"
 
 Jamie put down his phone.
 
@@ -443,7 +585,7 @@ Ben sat back down, explaining further, "It was a good thing actually. Got people
 
 "And the students ate it up," Ben said.
 
-"Well, yeah," Jamie said, "because a lot of it is true. It's all connected, that's all that happened. As they started looking into the heart of the issues, they could see it all stemmed from a concerted effort by the wealthy minority of the country to foster a more American capitalist social structure into place. Chile is not a wealthy country, relatively speaking. They have the copper mines and a few other agriculture exports, but they have always been a somewhat second-world country. And of course, the folks on the hill want to change that. They see it as a kind of patriotism actually."
+"Well, yeah," Jamie said, "because a lot of it is true. It's all connected. As they started looking into the heart of the issues, they could see it all stemmed from a conscious effort by the wealthy minority of the country to foster a more American capitalist social structure into being. Chile is not a wealthy country, relatively speaking. They have the copper mines and a few other agriculture exports, but they have always been a somewhat second-world country. And of course, the folks on the hill want to change that. They see it as a kind of patriotism actually."
 
 "So what happened?" Will asked, "What does all that have to do with a soccer game on a gigantic screen in Plaza Whatever?"
 
@@ -453,7 +595,7 @@ Ben sat back down, explaining further, "It was a good thing actually. Got people
 
 "Sort of like always," Janette laughed.
 
-"Fuck off, bitch," Jamie winked, "so I came to this area, this wide open area, the square with the capital building, all this manicured landscaping and statues, marble. And there were about a hundred college students, shouting and raising their hands. They had signs. There were carabineros on horseback, carabineros wearing riot gear, with the shields and everything. And it seemed like a single wrong look could set the whole thing off like a stick of dynamite."
+"Whatever, bitch," Jamie winked, "so I came to this area, this wide open area, the square with the capital building, all this manicured landscaping and statues, marble. And there were about a hundred college students, shouting and raising their hands. They had signs. There were carabineros on horseback, carabineros wearing riot gear, with the shields and everything. And it seemed like a single wrong look could set the whole thing off like a stick of dynamite."
 
 "It really is like that," Ben agreed.
 
@@ -495,13 +637,13 @@ Jamie walked over and woke up The Silent One. Ben grabbed their coats and handed
 
 "It is fucking cold out here," Jamie observed. He threw on his peacoat and opened the cab door. Janette climbed in, then Jamie, then the Silent One. When the door was shut she rolled down the window.
 
-"Hey, you guys be careful. Stay in the soccer crowds. Will, it was nice to meet you."
+"Hey, you guys be careful. Stay in the crowds. Will, it was nice to meet you. I hope you meet up with that girl."
 
-"Nice to meet you too."
+"Nice to meet you too, thanks."
 
-The cab pulled off and turned the corner. Ben lit a cigarette and offered one to Will.
+The cab pulled off and turned the corner. Ben lit a cigarette and offered one to Will. He refused.
 
-"What is it you do here?" Will asked.
+"What is it you do here?" Will asked, "I don't think that ever came up."
 
 "I'm an astronomer," Ben answered.
 
@@ -515,6 +657,11 @@ Ben laughed.
 
 "Nice," Ben said, "I could do that I suppose. Feel like hoofin it for awhile?"
 
-"Sure," Will said.
+"Let's do it," Will said.
 
-The both of them rounded the corner down Pedro De Valdivia towards Plaza Italia.
+The both of them rounded the corner and headed down Pedro De Valdivia towards Plaza Italia.
+
+
+Chapter Four
+
+It was a cold night, clear. Gazing up, you could see stars even with the street lights. Will and Ben walked at a brisk pace down  the sidewalk. Traffic was light, a cab every now and then. They passed the Los Leones metro entrance and saw the gates were pulled down even though it was early. A man asked Ben for a light at a bus stop and so they stopped. Will looked down an alley and had something like deja vu. It made him shiver. This time yesterday he was driving to the airport. And now he was here. At this time yesterday he thought he would be walking with a pretty Chilean girl named Constanza, but instead he was walking with an American astronomer named Ben.
