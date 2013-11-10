@@ -664,4 +664,144 @@ The both of them rounded the corner and headed down Pedro De Valdivia towards Pl
 
 Chapter Four
 
-It was a cold night, clear. Gazing up, you could see stars even with the street lights. Will and Ben walked at a brisk pace down  the sidewalk. Traffic was light, a cab every now and then. They passed the Los Leones metro entrance and saw the gates were pulled down even though it was early. A man asked Ben for a light at a bus stop and so they stopped. Will looked down an alley and had something like deja vu. It made him shiver. This time yesterday he was driving to the airport. And now he was here. At this time yesterday he thought he would be walking with a pretty Chilean girl named Constanza, but instead he was walking with an American astronomer named Ben.
+It was a cold night, clear. Gazing up the stars were visible even with the street lights. Will and Ben walked a brisk pace towards Plaza Italia. Traffic was light, a cab every now and then. They passed the Los Leones metro entrance and saw the gates were pulled down, even though it was still early. A homeless man asked Ben for a light at a bus stop. They stopped and then resumed almost without missing a beat.
+
+Will looked down an alley and had something like deja vu. It made him shiver. This time yesterday he was driving to the airport. And now he was here. At this time yesterday he thought he would be walking down the street with a pretty Chilean girl named Constanza, but instead he was walking with an American astronomer named Ben.
+
+"So what does an astronomer do in Chile?" Will asked.
+
+"Heard of the Atacama observatory?"
+
+I've never heard of Atacama."
+
+Ben laughed.
+
+"It's the driest place on Earth, a desert north of here. There is an observatory. We do our work there."
+
+"What is your work?"
+
+"Right now, looking for proof of dark energy."
+
+"I've heard of that."
+
+"Yeah, it is one of the more important theories in the field."
+
+"I've always loved astronomy. Thinking about space. The infinite."
+
+"Same here."
+
+"Is space infinite?" Will asked.
+
+"Depends on what model of the universe you accept," Ben replied, "Although nobody really knows. Anybody who says they do is full of shit or trying to get your money. Or both."
+
+They crossed a large intersection with traffic and plenty of open restaurants. Will smelled the food and wanted to stop for something else to eat. He saw a McDonald's in the distance and wondered what a Big Mac here tasted like. Did they even have them?
+
+Ben stopped once they crossed the intersection.
+
+"Listen, you want to grab a cab the rest of the way. It's a good  twenty minute walk from here."
+
+"I'm okay with walking," Will said, "I like seeing the city at night."
+
+"Cool," Ben said. They continued walking.
+
+"So, that sucks about your girl, man," Ben said, "are you bummed?"
+
+Will thought for a moment.
+
+"To be perfectly honest I got hammered before I got a chance to get bummed, so you'll have to ask me in the morning."
+
+Ben chuckled.
+
+"I hear you."
+
+"What about you and Janette? I noticed a little something there."
+
+"Who knows, man?" Ben said, "That's been a long and winding road."
+
+"She's cute."
+
+"Yeah."
+
+Ben walked at such a fast pace Will had trouble keeping up. He never stopped at the intersections if there was no car coming, even if was a no walking sign.
+
+"Are we headed in the general direction of Moneda?" Will asked.
+
+"Yeah, Moneda is past Plaza Italia. That where you're staying?"
+
+"Yeah," Will said, then returning to the previous subject, "Anyway, you probably don't have much to worry about. I bet you astronomers get all the ladies."
+
+"You'd think so, but unfortunately that's not the case. We're pretty fucking nerdy to be quite honest."
+
+They came to an area where the streetlights were either out or non-existent. It was dark, but Ben navigated confidently through a few strange turns. Will caught his reflection on the glass of a small shop and saw his breath fog.
+
+At that moment a loud noise sounded in the alley behind them. It sounded like someone banging on a tin can with a baseball bat. They saw two teenagers in hoodies emerge from the alleyway walking in the same direction as them. Ben gave Will a nervous glance and then suddenly picked up his pace. Will picked up his pace as well and gave a quick glance back to see if the two teenagers were still there. They were.
+
+"Keep walking," Ben whispered, "If I say run, start fucking running."
+
+A cab came by with its lights off and Ben walked to the curb and tried to flag it down, still keeping his pace. The cab drove by in silence and continued past them.
+
+One of the teenagers shouted, "Hola, gringo!"
+
+Ben looked at Will and kept walking at a rapid pace. It was clear the two teenagers were gaining ground. Will looked in futility at all the closed businesses around them. If only it could be a few hours earlier, these businesses would not be closed and they could go inside, out of the dark, where it was safe. But it was now. It was always fucking now.
+
+A baseball bat slid into Will's heel and tripped him up momentarily, but caught himself. Ben shouted, "Run!" but Will had already sprinted ahead by a few feet. Everything slowed down and out of the corner of his eye Will saw a hand reach over Ben's and grab hold. He was jerked around hard and pushed to the ground. Will kept running. The teens were shouting in Spanish in Will's direction. He stopped. One of the teens kicked Ben in the stomach and held a box cutter up to his cheek. Ben nervously pulled his wallet out of his pocket and threw it at the teens. Will stood his ground, afraid to come closer.
+
+The other teen looked up and they exchanged glances. There was a meanness in his eyes that seemed unnatural in a face so young.
+
+Two headlights came down the street shining brightly on the scene. The teenagers took that as a cue to bolt, so they left Ben there on the ground and disappeared into an alleyway. The car passed without stopping.
+
+Will ran over to Ben who had gotten up and was dusting himself off. Ben was shaking all over and jumped when Will put his hand on his shoulder. He smelled piss.
+
+"Hey, it's just me," Will said, "they ran off. Let's get out of here."
+
+"Yeah," Ben said, dazed.
+
+They took off down the road until they were back in a more well-lighted strip of the road. Then they stopped.
+
+"Fuck," Ben said, "Fuck. Can't believe those fuckers mugged me. That's the last thing I needed, man. Shit."
+
+"I'm sorry man," Will said.
+
+"Did they get you?"
+
+"No, the headlights scared them off before they got to me. Fuck man, I should have listened to you when you said we should get a cab."
+
+"No, fuck that man. You didn't know we'd get mugged."
+
+Ben took a deep breath. He started looking at the road. There was more traffic.
+
+"Look, man. That really freaked me out. I don't think I can handle a crowd after going through that. I'm just gonna head back to the hotel and call it a night. My fucking ID was in my wallet."
+
+"No problem, Ben. I understand," Will said.
+
+"Can you spot me ten thousand pesos, or so, so I can get back to the hotel? Gonna stay right here til a cab comes."
+
+Will reached in his wallet and pulled out the money.
+
+"I'll stay with you," Will said, "Think we should call the cops?"
+
+"No," Ben looked up, surprised, "No way man, too much headache. They're not gonna find those kids."
+
+"I'll stay," Will said, "fuck the game."
+
+"No, go on man. I'm not feeling much like company now anyway. It was nice to meet you, Will. Maybe we'll meet up some other time."
+
+They exchanged email addresses, then Ben stood up and held out his thumb for a cab. Will stood there.
+
+"You sure you're okay?" Will asked, unsure whether he should go.
+
+"I'm good man," Ben said, "I'll be fine."
+
+"Alright, take it easy," Will said, and then turned down the street. Ben did not respond, but Will turned back a few minutes later and saw Ben getting in the back of a cab. 
+
+He was alone again. He continued down the street, in the direction Ben had said Plaza Italia was. The events of the mugging replayed over and over in his head. Had he acted cowardly? Was that why Ben had acted so upset towards him just now? It was the first time he had been in a situation like that. It was true what they said, how time slowed down. Each moment was clear in his mind. A more courageous person might have run back immediately to help his friend. Was he a friend?
+
+There were more cars appearing now, more people on the sidewalk. He passed another metro stop with a gated entrance. His heart had still not calmed down. He did not make eye contact with anyone he met. When they had left the California Cantina the empty streets gave off a peaceful, serene feeling but now they felt sinister. Every locked door, every homeless man in a doorway felt like a violation, like a some kind of evil invading the world. 
+
+Will felt he was was not in a good state of mind to be entering a crowded space. Maybe he should get a cab too, return to the Hotel Riveria and sleep it off. Maybe decide what to do about Constanza. Had he already sent her an email? He wasn't sure if he had. Who was she? Why had she catfished him? The person who had those late-night conversations with him, who was that? He was so happy to have found her. When they talked they even completed each other's thoughts. Not in that cheesy way, but in a real way, a spiritual way. She understood him, thousands of miles away, she knew who he was in a way even his mother did not. But was all that a dream? Did it even happen the way he remembered?
+
+As he came around a turn in the road, immediately he saw lights in the distance, brightening the face of buildings down at the end of the road. He saw people, cars. He heard the roar of a crowd, music. He kept walking. As he got closer he could make out more and more specific sounds, there was a band playing in the small courtyard of a place in the park. Will started to make out the large screen. He saw the larger than life players on the screen. Then, when he got very close, and the plaza opened up, he saw a large group of protesters off the side, standing in an open concrete courtyard. There was a metro entrance there, Baquedano, also gated. The protesters were nearly all young, angry, some had that same meanness in their eyes. They wore military jackets and earrings, carried some signs with slogans Will could not understand. But he recognized the symbols they bore: a fist raised in anger, a gas mask inside out, a dollar sign made out of flowers, a baby with a skeleton head, the Chilean flag burning.
+
+
+Chapter Five
+

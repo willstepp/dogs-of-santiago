@@ -79,7 +79,7 @@ He walks back to his hotel room, foregoes the metro, and eventually arrives. By 
 1700 words in the conversation, regarding TBD
 
 5000 (game + riot)
-1700 walking
+1700 mugging
 1700 game
 1700 riot
 
