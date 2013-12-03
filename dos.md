@@ -107,7 +107,7 @@ He had a moment of weakness back there, he had actually taken some Xanax. It had
 
 He saw outside the cars going by. Cars he did not recognize, smaller and older than those on the American highways. Inside were Chileans. Life here was the same as in the states. Going to work, going home. The buildings were the same, not exactly, but close enough. Old ones, shiny new ones. Dilapidated ones. Graffiti on the concrete overpass. In Spanish of course. Green signs in Spanish, roads, exits. The smells the same, gasoline, the crisp, almost metallic winter air. A gray light, overcast, maybe a little chance of rain. The people different, native, more ancient looking, shorter. He saw them walking on the sidewalks. 
 
-Beyond the city he saw the mountains, the Andes. How far was it there, to those snowy peaks? He imagined the silence of that place in contrast to the noise down here. He was sitting there in the snow, cross-legged, he ankles exposed and freezing. The cold of the snow slowly coming through the bottom of his jeans. He shivered. The only sound here was the whipping of the wind around the crags. No life nor food. Only silence. This was no place for a human being.
+Beyond the city he saw the mountains, the Andes. How far was it there, to those snowy peaks? He imagined the silence of that place in contrast to the noise down here. He was sitting there in the snow, cross-legged, he ankles exposed and freezing. The cold of the snow slowly coming through the bottom of his jeans. He shivered. The only sound here was the whipping of the wind around the crags. No life nor food. Only silence. No place for a human being.
 
 He awoke still in the taxi, the driver stopped in construction traffic, frustrated and banging on the steering wheel. It was raining. Outside were people walking past, making better time than the cars. It took him a few moments to realize he was in Chile, took some time before the events of the morning came back to him. He reached into his duffle bag and pulled out his journal. Between two pages was a folded photograph. He opened it and gazed at the dark-haired woman staring back at him. She was beautiful.
 
@@ -770,17 +770,17 @@ They took off down the road until they were back in a more well-lighted strip of
 
 Ben took a deep breath. He started looking at the road. There was more traffic.
 
-"Look, man. That really freaked me out. I don't think I can handle a crowd after going through that. I'm just gonna head back to the hotel and call it a night. My fucking ID was in my wallet."
+"Look, man. That really freaked me out. I don't think I can handle a crowd after going through that. I'm gonna head back to the hotel and call it a night. My fucking ID was in my wallet."
 
 "No problem, Ben. I understand," Will said.
 
-"Can you spot me ten thousand pesos, or so, so I can get back to the hotel? Gonna stay right here til a cab comes."
+"Can you spot me a few thousand pesos, or so, so I can get back to the hotel? Gonna stay right here til a cab comes."
 
 Will reached in his wallet and pulled out the money.
 
 "I'll stay with you," Will said, "Think we should call the cops?"
 
-"No," Ben looked up, surprised, "No way man, too much headache. They're not gonna find those kids."
+Ben looked up, surprised, "No way man, too much headache. They're not gonna find those punks."
 
 "I'll stay," Will said, "fuck the game."
 
@@ -790,7 +790,7 @@ They exchanged email addresses, then Ben stood up and held out his thumb for a c
 
 "You sure you're okay?" Will asked, unsure whether he should go.
 
-"I'm good man," Ben said, "I'll be fine."
+"I'm good man," Ben said.
 
 "Alright, take it easy," Will said, and then turned down the street. Ben did not respond, but Will turned back a few minutes later and saw Ben getting in the back of a cab. 
 
@@ -800,8 +800,63 @@ There were more cars appearing now, more people on the sidewalk. He passed anoth
 
 Will felt he was was not in a good state of mind to be entering a crowded space. Maybe he should get a cab too, return to the Hotel Riveria and sleep it off. Maybe decide what to do about Constanza. Had he already sent her an email? He wasn't sure if he had. Who was she? Why had she catfished him? The person who had those late-night conversations with him, who was that? He was so happy to have found her. When they talked they even completed each other's thoughts. Not in that cheesy way, but in a real way, a spiritual way. She understood him, thousands of miles away, she knew who he was in a way even his mother did not. But was all that a dream? Did it even happen the way he remembered?
 
-As he came around a turn in the road, immediately he saw lights in the distance, brightening the face of buildings down at the end of the road. He saw people, cars. He heard the roar of a crowd, music. He kept walking. As he got closer he could make out more and more specific sounds, there was a band playing in the small courtyard of a place in the park. Will started to make out the large screen. He saw the larger than life players on the screen. Then, when he got very close, and the plaza opened up, he saw a large group of protesters off the side, standing in an open concrete courtyard. There was a metro entrance there, Baquedano, also gated. The protesters were nearly all young, angry, some had that same meanness in their eyes. They wore military jackets and earrings, carried some signs with slogans Will could not understand. But he recognized the symbols they bore: a fist raised in anger, a gas mask inside out, a dollar sign made out of flowers, a baby with a skeleton head, the Chilean flag burning.
+As he came around a turn in the road, immediately he saw lights in the distance, brightening the face of buildings down at the end of the road. He saw people, cars. He heard the roar of a crowd, music. He kept walking. As he got closer he could make out more and more specific sounds, there was a band playing in the small courtyard of a place in the park. Will started to make out the large screen. He saw the larger than life players on the screen. Then, when he got very close, and the plaza opened up, he saw a large group of protesters off the side, standing in an open concrete courtyard. There was a metro entrance there, Baquedano, also gated. The protesters were nearly all young, angry, some had the same meanness in their eyes. They wore military jackets and earrings, carried signs with slogans Will could not understand. But he recognized the symbols they bore: a fist raised in anger, a gas mask inside out, a dollar sign made out of flowers, a baby with a skeleton head, the Chilean flag burning.
 
 
 Chapter Five
 
+Now there were dozens, perhaps hundreds of people surrounding him. He continued making way through the crowds. Then there was a tightness in his chest that at he first he could ignore but slowly came over him like a panic. He stopped, knelt on one knee, and caught his breath, taking a few deep inhales. It was not a heart attack, his inner voice reassured him, only some anxiety, brought on by the people. Stars appeared at the corner of his eyes and floated away. He gazed up at the jumbotron and followed the game. He saw a player in blue shorts take a dive then swept his leg towards the spinning ball at the moment before landing, the ball angling off his foot towards the goal. It hit the net with a tremendous force and in unison the wall of spectators surrounding him leapt on their feet and cried out in joyful applause. Will joined them, shouting and waving his arms.
+
+"El gato!" he screamed, remembering one of the phrases from the audio lessons he had worked through on the flight down, "El gato encima de una mesa!"
+
+A woman next to him gave him an odd look, then laughed, "El gato!" she answered.
+
+Will saw everyone around him was holding drinks and hotdogs. He wandered towards the edge of the crowds, looking for the vendors, hungry and perhaps a little drunk. But the tightness in his chest had passed for the time being.
+
+On the circumference of the crowds were dozens of vendors selling all kinds of things, trinkets, paintings, fake silver jewelry. He passed a cart with a man selling hot nuts, Nuts for Nuts, and found a stand selling hot dogs and beer.
+
+"Uno cerveza, por favor."
+
+The man nodded and gave him the price which he did not understand, but he saw the sign, a thousand pesos.
+
+"And a hot dog. Hot dog," Will asked, pointing to the bin of boiling dogs.
+
+"Completo?" the man asked.
+
+"Si, si. Uno completo, por favor."
+
+The man quickly pulled a bun from a bag and took a hot dog with a pair of tongs. He assembled the completo and slathered it with mayonnaise and onions, some tomatoes. Will winced at all the mayo but didn't say anything. He handed the man five thousand pesos and told him to keep the change. The man nodded graciously and put it into the drawer.
+
+He walked around the outer edge of the people and scooped some of the mayo onto the sidewalk. It was good and he chased with the cerveza and it also was good, although not so cold as he would have liked. But it was a cold night. The hot dog warmed him inside. He put his hands into his jeans pockets and watched the people who watched the game. They were happy. There were families there. Will watched one family for a little while. The son couldn't see the screen so the father put him up on his shoulders. The mother stood beside him, nestled against the father's side. At their feet a stray dog ran past, sniffing for scraps, but not finding anything so far. He continued deeper into the forest of legs and feet and Will lost him.
+
+After a few more goals Will started paying more attention to the game than the crowd. Without knowing it he fell back into the middle, his eyes, like most, fixed on the illuminated screen. The announcers voice boomed through the speakers at either side of the park, rumbling.
+
+Will, not really aware of himself at this point, began repeating each phrase that came through the speakers. The people around him stared and looked suspicious once they saw he was not Chilean. He then found a group at least as drunk as himself and gravitated towards them. He didn't know what they said to him, nor they what he said to them, but it was a good time.
+
+One man laughed hard every time Will repeated the announcer and put his arm around his neck. The Chileans scored another goal and they all hugged and downed their cervesas in salute.
+
+"We don't get this excited about sports," Will told the old man, "In America, and I just figured out why."
+
+"Estados Unidos?" The old man said.
+
+"Si," Will said, "Estados Unidos of America."
+
+"Estados Unidos!" They all shouted. One of them handed Will another beer. He took it graciously.
+
+"I have figured it out," Will said, to the group although no one understood him, "it's simple really, and I guess maybe you already knew this, but I hadn't realized it. You get so excited because it's your country up there. It's not a city, or a school, its your freakin country up there, representing you. That's why it means so much. It's like war. It means something!"
+
+Will shouted so hard he saw stars float in from the sides of his eyes. He felt the pressure again, the old pressure on his chest, the panic sinking in. He stopped immediately, all the joy he was feeling gone in an instant.
+
+Those around him stopped for a moment and then returned to the game. Will looked up at them in his panic and saw they cared nothing about him. He was drunk, they were drunk. He found the family again, the boy on his father's shoulders. Somehow the sight of it made him want to cry. He did what he was supposed to do and breathed in slowly and methodically and counted to sixty. Soon the stars went away, the dizziness. It passed.
+
+By this time the game was coming to an end. The Chilean team was up by two and there wasn't much hope for the other team, Portugal maybe? Will couldn't tell. Might as well be Portugal. Some of the crowd was beginning to disperse. Will felt uneasy. From his anxiety and the excitability of the crowd, and the protesters at the edge of the square. There was a wind, like a blowing through the crowd, and it felt like static electricity. He felt like it would be best to get back to the Hotel Riveria as soon as possible.
+
+He was drunk, very drunk. The jumbotron lit up his face and he tried to make out the final score but could not. It was a blur, a drunken blur. His head was on the cusp of spinning into nausea, but not quite. He stopped where he was and looked at the ground to find something solid to focus on. He saw a pile of cigarettes, one smoldering. He saw the place where the grass met the concrete lip of the curb. He saw shoes, outdated shoes, they no longer wore in the States, LA Gear, shit like that. The game was over and the people were going home. They were happy, but not happy the game was over.
+
+He thought about Ben. Had he acted like a friend to Ben, back there? It was blurry. Maybe it was not important. Yet he felt like it was. Maybe he should have insisted to go with Ben. Ben had been frightened, more than he let on. Will was frightened too. Why was he here? Why had he come here? He looked up at the stars and saw them through the thin clouds. They would look the same back home, thousands of miles from this place, this alien landscape, where the inhabitants eat hot dogs with a gallon of mayonnaise.
+
+There was shouting. Will looked up and saw a group of Chileans carrying chairs. Where did the chairs come from? They were celebrating, he supposed. Some were smiling. Others looked like they wanted blood. He stood up as they came upon him and before he knew it, he had joined in, keeping pace with them, marching, where he couldn't say. Will held up his beer and shouted along with him. He laughed and saw another man around him laugh. As they went others joined in. A song broke out among some of them and Will tried to keep up, humming along. It was a cheerful song, with loud bursts of energy.
+
+One of the men in the group threw his chair into a crowd of people walking past, hitting a woman over the head. She fell to her feet and held her head. The crowd gasped and continued walking. Music was playing from somewhere far to the north, towards the jumbotron. Will didn't know what direction he was going. He decided it would be better to get out of this crowd and head towards Moneda. Extracting himself from the group was not as easy as it looked. It was wild and growing wilder by the moment. The laughs and good-naturedness he had felt at first were not anywhere to be seen. The man next to him growled and shouted something at the top of his lungs, beating his chest.
+
+They were on the street. He looked up and saw the traffic lights, ignored. Where were the cars?

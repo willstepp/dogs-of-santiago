@@ -71,7 +71,7 @@ What is purpose of Fullbright scholar scene:
 
 The conversation drifts to the Santiago Dogs, privilege, the importance of action.
 
-Ben wants to go to to Plaza Italia, to watch the game on the giant screen, this is what starts the concern for the Perros de Santiago, a conversation of who they are, what they believe, are about. He gets online and writes Constanza an email, sending her a link to the actress. Then he walks out, keeps walking to Bellavista. Passes a park where people are kissing, where dogs are playing. Plaza Italia. Comes to an open area with a gigantic screen. They are showing a football game, Chile vs Brazil. There
+Plaza Italia. Comes to an open area with a gigantic screen. They are showing a football game, Chile vs Brazil. There he joins in the excitement, trying to follow the game, getting angry when the crowd gets angry, shouting when the crowd shouts.
 
 He walks back to his hotel room, foregoes the metro, and eventually arrives. By then it is 19:30 and the sun is going down. He goes to his room, stands in the silence of it, but finds it unbearable.
 
@@ -88,3 +88,18 @@ He walks back to his hotel room, foregoes the metro, and eventually arrives. By 
 Something happens to Will and Ben on the way, just a holdup with a knife, no beating, Ben's wallet is stolen. Will's Xanax is stolen, but they don't find his wallet. 
 
 Then later, in the shanty town, its just a beating, but they take his wallet as well, break his ribs and wrist.
+
+Will ends up beating someone during the riot
+
+Floating in space, clinging to a rock, speeding up, then realizes there is no need to cling anymore. No consumption, no empathy, only silence. A planet for every girl and boy.
+
+"Of the wise man, as of the foolish man, there is no memory for ever..." Ecclesiastes.
+
+Ben shits his pants during the mugging. "I shit my pants. Fuck. I shit them."
+
+"iPod. iPod. iPod. iPod. iPod!"
+Network! Macbook Pro! Macbook Macbook Pro one thousand sixty inch display!"
+
+"All they said was iPod and they took my phone and wallet."
+
+What is the purpose of the scene tonight? To give a sense of the excitement, pride, and joyous ecstasy of watching a national soccer game, and how it slowly gets out of control. Drinking, punching but laughing, dancing, hot dogs, completes, uno cerveza por favor! Draw from the jumbotron night, the gate, the maze like nature of the crowd, the violence mixed with happiness. the confusion about the game. The girls. The clear night above it all. A family like an island. A boy on his father's shoulders. A businessman in a suit eating ice cream. Bring back the anxiety of being in a crowd, of feeling the pressure on the chest, the slight suffocation.
