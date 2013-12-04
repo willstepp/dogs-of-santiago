@@ -103,3 +103,11 @@ Network! Macbook Pro! Macbook Macbook Pro one thousand sixty inch display!"
 "All they said was iPod and they took my phone and wallet."
 
 What is the purpose of the scene tonight? To give a sense of the excitement, pride, and joyous ecstasy of watching a national soccer game, and how it slowly gets out of control. Drinking, punching but laughing, dancing, hot dogs, completes, uno cerveza por favor! Draw from the jumbotron night, the gate, the maze like nature of the crowd, the violence mixed with happiness. the confusion about the game. The girls. The clear night above it all. A family like an island. A boy on his father's shoulders. A businessman in a suit eating ice cream. Bring back the anxiety of being in a crowd, of feeling the pressure on the chest, the slight suffocation.
+
+What happens now? 12-03-2013
+
+The riots should span two writing sessions ~3000 words, and end with Will beaten, soaking wet, falling into the river from the bridge, walking down with the direction of the water, seeing people's clothes strung over the water, drying. Climbs out a few hundred miles down, walking the narrow alleys, until he emerges somewhere close to Bellavista. Disorientation, vivid detail, images without context, violence mixed with laughing.
+
+Beginning of the riots, chaos, celebration turning into a stampede, up close to the carabineros. They push people to the ground. tear gas in the air. The dogs playing as if its just another day. Will gets away and runs down a side street with a pack of teenagers. There are people looking out the windows.
+
+Will is in the crowd, celebrating the Chilean victory, although violence is creeping in, slowly. He feels swept along, picks up a chair himself and tosses it into a tree. Someone hands him a beer, there are shouts and songs. He joins in and screams about the cat on the table, having fun.
