@@ -111,3 +111,21 @@ The riots should span two writing sessions ~3000 words, and end with Will beaten
 Beginning of the riots, chaos, celebration turning into a stampede, up close to the carabineros. They push people to the ground. tear gas in the air. The dogs playing as if its just another day. Will gets away and runs down a side street with a pack of teenagers. There are people looking out the windows.
 
 Will is in the crowd, celebrating the Chilean victory, although violence is creeping in, slowly. He feels swept along, picks up a chair himself and tosses it into a tree. Someone hands him a beer, there are shouts and songs. He joins in and screams about the cat on the table, having fun.
+
+How can I live in this world. You know how it says in the Bible, give to those that asketh thee and from he who would borrow from thee turn not thou away, how can you do that? Suppose I give a man a dollar, then another man comes up...ad infinitum. Am I supposed to give everything I have. If not, where do you draw the line in the sand and say no more from me?
+
+Am I evil? Am I living an evil life? Is that why they want to murder me? What do I really know? What is imprinted by my culture, my religion, my parents, friends? What do *I* know, myself? Not much.
+
+Why did you follow the man with the ponytail back to the Plaza? Did you have a chance to get away?
+
+Yes.
+
+Why didn't you?
+
+I don't know.
+
+The interrogation is a confession
+
+What happens now? 12-04-2013
+
+Will is in the middle of the riots. He has escaped the Plaza by running down some side streets with some of the other protesters. The people were covering their faces with their shirts, trying not to breathe it in. The man in the ponytail begins shouting and leads the group back to the Plaza, where they encounter dozens of carabineros in riot gear, armor, batons, face shields. They throw things they pick up off the ground at them, shout things. Will joins in without really understanding. A carabinero grabs him by the arm and pushes hi to the ground. Will swings and knocks him down, starts punching underneath the face shield. Then runs off, frightened. He cannot see in front of him from the smoke, all the lights in the square have been turned off. He can hear the riot vans careening down side streets, the blast of the cannons. He stumbles off away from the chaos and falls from the bank leading down to a shallow river. The water is ice cold and he wades in it for a few hundred yards, then climbs up the bank on the other side. The streets are quiet here, the wind through the alleys, his heart beat, far away lights, the night sky, and the sound of music.
