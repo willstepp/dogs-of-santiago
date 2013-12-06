@@ -905,4 +905,56 @@ It was dark but he could see the outlines of the large trees there, the black li
 
 He emerged from the park onto a narrow road paved with cobblestones. The night air was cold on his skin, and now that he was calmer he felt the chill and shivered. Goosebumps ran up his arms and he folded them into his chest for warmth. Crossing the road he came upon a small chain fence. He walked some ways down and heard moving water coming from somewhere nearby. He stopped and listened for it. There it was, on the other side of the fence. He placed two hands on the fence rail and heaved himself over the side, not counting for the steepness of the bank and tumbled down a grassy slope into the freezing river.
 
-The water was shallow, but cold. Damn cold. Will stood up in the river and watched the water flow around his legs in the moonlight. He quickly cupped some of the water in his hands and brought it over his head, slinging back his hair in his hands. The cold stung his wound. He walked over to the bank and climbed out again. He fell to the grass and lay there, not moving. He listened for the sounds of the protest and heard them far off. It was hard to tell how far. He needed to keep moving, to get as far away as possible. What had he done? The stars in the sky shone bright overhead. Will gazed at them for some time.
+The water was shallow and cold. Very cold. Will stood up in the river and watched the water flow around his legs in the moonlight. He cupped some of the water in his hands and spread it over his head, slinging back his hair in his hands. The water washed the blood from his wound. He walked over to the bank and climbed out again. He fell to the grass and lay there, not moving. He listened for the sounds of the protest and heard them far off. It was hard to tell how far. He needed to keep moving, to get as far away as possible. What had he done there? The stars in the sky shone bright overhead. Will gazed at them for some time before he returned to his senses. It was dark. He could see a long way down the street, but all the stores fronts and signs were darkened. He wondered what time it was. Now that the adrenaline was leaving his bloodstream he felt the briskness of the night air on his forearms and he noticed the alcohol still affecting his perception. He was not afraid. He was lost.
+
+To the north, beyond the concrete high rises he heard faint music, or he thought he did, drums and music. That seemed the most promising direction to go since it was not in the direction of the riots and since it was music it was bound to be a more happy atmosphere. He pulled himself over another short fence and continued on the sidewalk, catching his dim reflection in the large windows he past along the way, and if he could blend in he could pretend he was never involved in those protests from just a few minutes ago, pretend he had never punched the carabinero in the face with a baton, maybe ask directions to the Hotel Riveria. He thought of his bed and then suddenly of the old, one-legged bum who sat outside the hotel. His forlorn, wrinkled face which became all smiles when he had dropped in those pesos.
+
+He passed building after building, sheet metal, barred windows, newspapers wet and plastered on road sign poles. Graffiti he could not understand in bright neon colors, a sad sulking donkey wearing a greaser jacket. There was nothing he saw that reminded him of home. It was all foreign, all alien and weird. The city was only a city, but uninviting and depressing to him. Even the trees and flowers planted along the sidewalk made him feel alone, the large unfamiliar leaves. Why had this loneliness all of a sudden overcome him. It was not there before. Maybe it was a reaction to the violence he had just witnessed, just been a part of. It made him sick and the louder the music became the more he wanted to be there, around the lights and people again, to drown out this feeling in his soul.
+
+Then he saw a person, a man pissing against a building, out in the open, the steam rising from the yellow stream. He was drunk, that was obvious. Will kept walking past him, not even looking from the corner of his eye. The music was louder now. He quickened his pace and turned a couple more corners. There at the end of the next street was a cross street, filled with people.
+
+He emerged on Pia Nono like a visitor from another planet. Here were dozens, maybe hundreds of people, partying, living it up. Didn't they know what was happening only half a mile down the road? It didn't appear so. Will felt safer here. He felt all of a sudden as if the events of the last hour and a half had not really happened, they were distant somehow, far away. He did his best to blend in, he was after all dressed for a night on the town, although soaked and bloodied. He past a lime green tacqueria and walked inside. Once there he ignored the hostess and found the bathroom, a small closet next to the kitchen. He looked at himself in the mirror.
+
+"Good God," he said. He barely recognized himself, although it was hard to say why. He pulled some paper towels from a roll on the sink and dried his hair the best he could. He wiped off some dried blood that ran down his left cheek. His beard also had some dried beads of blood in them. A young man came into the bathroom at that point and Will turned around, "Occupied," he grunted, "Occupado!" The boy looked at him and then closed the door. Will combed out the tangles in his hair. He tucked in his shirt, which was drying out. It was dirty and covered with some grease stains on the sides, but in the night it could pass as presentable.
+
+There was a karaoke bar on the opposite side of the street from the tacqueria and Will ducked inside there to wait things out for awhile. On the stage in the center of the place was an older man and much younger woman singing a duet, Jackson by Johnny Cash and June Carter. They were doing a pretty good job and everyone was smiling and dancing. The bar circled the stage on the outer edge of the building. Will went to the corner and asked the bartender for agua. He was handed a plastic cup filled with tap water and drank it down fast. There was a soapy taste to the water but he didn't care. He watched the couple sing and when the song was over he clapped like one of the regulars.
+
+Back in the corner he saw a group of people laughing and among them he thought he saw Ben. It was Ben, sitting next to a pretty South American woman, and a group of five others.
+
+"Hey Ben," Will said, waving as he approached the table, "Hey I thought you were going back to the hotel?" 
+
+He shook Will's hand, but did not seem to recognize him. Will noticed his confusion.
+
+"It's Will, man." He laughed. The man still looked confused.
+
+"I'm not Ben and I don't know who you are. Sorry."
+
+Yet it was Ben. Will was certain it was him. The same polo shirt, blue. The same jeans and jacket. The people with him were unfamiliar, but it was him. Will stared without trying to come off strange.
+
+"Look man," The man said, "I'm not Ben and we don't want any trouble here. It's clear you've been drinking. We're just trying to have a good time. Can you please leave us alone?"
+
+"But you are Ben, right? I mean, we just hung out a couple hours ago at the California Cantina, with Janette and the Silent One."
+
+"No, man," The man rose from his stool, "I'm not whoever you're looking for. I'm not him. So get the fuck out of here before I call security! I'm getting tired of this crap."
+
+Will stood there. Everyone at the table had stopped talking and was staring at him as if they were afraid of what he might do. Will nodded to them and walked outside. giving a single glance back. It was Ben. It was. Why was he pretending not to know him? It made no sense at all. 
+
+Will continued up the street, which began to incline steeper as he reached the next intersection. He passed couples making out as they walked, groups of young men strutted in packs, an out of place family of four walking hand in hand. He passed bar after bar, music clubs, jazz clubs, different music at each corner. He looked in the windows and saw the people inside, huddled together around a small stage where someone sang or played guitar. He needed a place to chill for awhile, a place to clear his head. He decided to catch a cab back to his hotel. Fortunately there was a row of cabs lined up on an adjacent street. He crossed over and walked up the hill to where the cabs were, yet before he made eye contact with anyone a hand reached out and touched him on the shoulder.
+
+"Excuse me, sir?" A man in a long coat asked him. He was neatly dressed, in a suit and jacket. He held a clipboard and carried a walkie talkie on his belt.
+
+Will stared at him.
+
+"Sir, are you an American? Are you from the United States?"
+
+"Yes I am."
+
+The man took Will by the hand and led him up the hill, away from the cabs and towards a large warehouse building.
+
+"Follow me, please," The man said and let go of his hand.
+
+Will followed with caution, unsure if he should run or just go with it. At the top of the hill there was a line of people, all dressed to the nines. There was a large sign on the warehouse door that said, Galpon 9. The man with the clipboard led Will past the line of people, all Chileans, and unclipped a rope behind the bouncer at the door. He reached in his pocket and handed will two pieces of paper, took his left hand and stamped it.
+
+"Drink tickets for you," the man said, smiling, "Welcome to Chile, my friend, and have a good time!"
+
+He opened two large wooden doors and loud thumping dance music poured outside. Will entered and the man pulled the door closed. Inside there were waitresses in short black skirts walking with trays held high, security guards wearing black t shirts and black pants standing under an archway. Beyond the archway was an enormous dance floor where perhaps a hundred people danced in a tight pack to electronic music and swirling lights of every shade and color.
