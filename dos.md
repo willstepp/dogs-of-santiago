@@ -905,6 +905,9 @@ It was dark but he could see the outlines of the large trees there, the black li
 
 He emerged from the park onto a narrow road paved with cobblestones. The night air was cold on his skin, and now that he was calmer he felt the chill and shivered. Goosebumps ran up his arms and he folded them into his chest for warmth. Crossing the road he came upon a small chain fence. He walked some ways down and heard moving water coming from somewhere nearby. He stopped and listened for it. There it was, on the other side of the fence. He placed two hands on the fence rail and heaved himself over the side, not counting for the steepness of the bank and tumbled down a grassy slope into the freezing river.
 
+
+Chapter Six
+
 The water was shallow and cold. Very cold. Will stood up in the river and watched the water flow around his legs in the moonlight. He cupped some of the water in his hands and spread it over his head, slinging back his hair in his hands. The water washed the blood from his wound. He walked over to the bank and climbed out again. He fell to the grass and lay there, not moving. He listened for the sounds of the protest and heard them far off. It was hard to tell how far. He needed to keep moving, to get as far away as possible. What had he done there? The stars in the sky shone bright overhead. Will gazed at them for some time before he returned to his senses. It was dark. He could see a long way down the street, but all the stores fronts and signs were darkened. He wondered what time it was. Now that the adrenaline was leaving his bloodstream he felt the briskness of the night air on his forearms and he noticed the alcohol still affecting his perception. He was not afraid. He was lost.
 
 To the north, beyond the concrete high rises he heard faint music, or he thought he did, drums and music. That seemed the most promising direction to go since it was not in the direction of the riots and since it was music it was bound to be a more happy atmosphere. He pulled himself over another short fence and continued on the sidewalk, catching his dim reflection in the large windows he past along the way, and if he could blend in he could pretend he was never involved in those protests from just a few minutes ago, pretend he had never punched the carabinero in the face with a baton, maybe ask directions to the Hotel Riveria. He thought of his bed and then suddenly of the old, one-legged bum who sat outside the hotel. His forlorn, wrinkled face which became all smiles when he had dropped in those pesos.
@@ -957,4 +960,110 @@ Will followed with caution, unsure if he should run or just go with it. At the t
 
 "Drink tickets for you," the man said, smiling, "Welcome to Chile, my friend, and have a good time!"
 
-He opened two large wooden doors and loud thumping dance music poured outside. Will entered and the man pulled the door closed. Inside there were waitresses in short black skirts walking with trays held high, security guards wearing black t shirts and black pants standing under an archway. Beyond the archway was an enormous dance floor where perhaps a hundred people danced in a tight pack to electronic music and swirling lights of every shade and color.
+He opened two large wooden doors and loud thumping dance music poured outside. Will entered and the man pulled the door closed. Inside there were waitresses in short black skirts walking with trays held high, security guards wearing black t-shirts and black pants standing under an archway. Beyond the archway was an enormous dance floor where perhaps a hundred people danced in a tight pack to electronic music and swirling lights of every shade and color. He felt every beat and thump reverberate through his body. The sounds were so loud they made everything seem far away.
+
+Will approached the bar and handed a drink ticket to a waitress, shouting into her ear for a cerveza. She winked and walked away with a tiny hop as he pulled up a stool. "What the fuck am I doing here?" he said at normal speaking volume. Nobody could hear him anyway. How was I in Georgia yesterday and today I am three thousand miles away in a night club after participating in a student protest. At that moment he remembered Constanza, the fake photo, and all those feelings. Who was she? Was she ugly? Was she really a she? Who had been on the other side of the computer screen all those nights, all those nights that turned into mornings, when they discussed love and art, politics, everything. Was she here tonight? He glanced across the room at the multitude of women, most dressed in short revealing skirts, some in shorts with high boots, dark haired women with smooth skin and curves. They took care of themselves down here.
+
+The girl brought back his drink and he downed in a few long gulps. He thought about Ben. Was it really him in the karaoke bar? He was almost sure it had been. The same clothes and hair, same face. Briefly he considered the possibility he had gone insane. They said you never know if you go insane for real. It's technically impossible to be cognizant of your insanity. Maybe that's it. Maybe it happened during the flight down. Maybe during the mugging. Or maybe while witnessing a horse being put down with a bullet to the head. Or being sprayed with a water cannon and chased through the streets by an armored vehicle. Or by being deceived by Constanza. Fuck. Why did that have to happen? It was so good and it had to go bad, like always. And the money for the ticket, but fuck the money. Money is just money. It could have been something real. Someone, somewhere is trying to tell you something, Will. You need to leave this wicked place. Go to your hotel room right this instant and leave in the morning. Fly back to the States where you belong, where you were born and where you will die some day a long time in the future, when your hair is gray and wiry and your dick doesn't get hard anymore. He ordered another drink.
+
+Upstairs it was more of a lounge-type vibe. There were long rows of white upholstered couches lining the walls. The bar was in the center of the floor, the hardwood had gaps so wide you could see the dancers below. Will found a cozy place at an empty two top and nursed his third beer. How much had he had to drink already. Goddamn this was the craziest pub crawl in the world. He laughed. "Fucking pub crawl!" He laughed hard, exaggerating his laugh in his drunkenness. "El Pub Crawlio Del Gato!" He yelled again. Some people around him began to stare but he didn't care. They hadn't just gone through a heartbreak, a mugging, a violent protest, and a dip in an ice cold fucking river, did they? "Fuck no they didn't!" He shouted, "Fuckers!" and leaned way back in his chair until he hit the person behind him, a woman.
+
+"Sorry, Jesus, I almost fell off."
+
+"Okay, man," the woman said, "Don't worry!"
+
+"You know English? Speak English?"
+
+"Yeah, man!" she shouted. Her shoulders bunched up in excitement as she took a sip from the cocktail straw, "Gringo, come sit with us!" She took Will by the hand. Her hand was delicate and so soft. He felt immediately in love with her and pulled his chair around.
+
+The group was the woman, a young Chilean woman of maybe twenty-two or twenty-three, an older man, closer to Will's age, maybe early to mid thirties, and an older, and very thick woman, who did not seem to fit very well within the group. She looked bored and didn't make eye contact once with Will.
+
+"I'm Will."
+
+"Margarita, and this is Felipe and Rosa. Say hi to Will everyone."
+
+Felipe took Will's hand and nodded to him. He took an instant liking to Felipe, a short man with a humble smile, short cropped hair. He seemed to be humoring Margarita, who was perhaps as drunk as Will.
+
+"Rosa!" Margarita snapped her finger at the woman, "Say hola to Will, my new Americano friend."
+
+Rosa turned back to the table and pulled a cigarette from a fake gold case next to her drink. She lit the cigarette and puffed as she looked Will up and down.
+
+"Hola," she said finally.
+
+"Hola." Will returned.
+
+"Don't mind Rosa," Margarita said, "she's a fucking bitch."
+
+Will looked at Rosa to see her reaction, but there wasn't one.
+
+"She don't know English. I the only one."
+
+Will nodded and then clinked his beer with her cocktail glass. She laughed. Felipe stared curiously at Will but did not speak. He sipped on a plastic cup of water.
+
+"Are you guys from Santiago?" Will asked, looking specifically at Felipe, as a way to break the ice with him.
+
+Felipe looked confused and glanced over to Margarita. She repeated something to him. He nodded in the affirmative and took another sip.
+
+"He doesn't know English either?"
+
+"No, man, I told you. I the only one who knows English at all."
+
+"Well, why do you know English and nobody else does? Are you trying to pick up some rich American guys or something?"
+
+Margarita giggled and rubbed up seductively against his shoulder.
+
+"Maybe so, maybe so."
+
+There was a lull in the conversation when Will couldn't think of anything else to talk about. Felipe shifted his gaze from Margarita to Will and back again. Rosa finally got up and walked to the bar, where she struck up a conversation with one of the bar staff leaning against the counter.
+
+"So Will," Margarita said, "why are you in Chile? Are you on vacation?"
+
+"I'm on a international pub crawl."
+
+"Que? What is that you said?"
+
+"A pub crawl. I go from bar to bar, drinking." He held up his bottle. Margarita didn't follow.
+
+"A joke," he said, "Nevermind."
+
+At this point Felipe too got up, whispered something to Margarita, and put his hand under her forearm. She pulled away abruptly and looked away from him. He exchanged glances with Will and then walked across the floor and headed downstairs, leaving Margarita and Will alone.
+
+"Good," Margarita shouted, "I'm glad he's gone."
+
+"You don't like him?"
+
+"No, not at all."
+
+"Who is he?"
+
+"That's my old boyfriend, from a long time ago."
+
+"You're not with him?"
+
+"No, I don't like him anymore."
+
+"Fair enough," Will said.
+
+"What?"
+
+"Nevermind. So what do you do? What is your job?" 
+
+Will found it hard to speak clear and loud enough so she could hear over the music at the same time. Her English was okay, but not the best. He could tell she struggled with more complicated phrasings.
+
+"Teacher," she said, smiling.
+
+Slowly they were leaning closer to one another. She was certainly beautiful, with long shiny hair, young pretty eyes, and a figure beneath her tight fitting blouse and pants. Her dangling feet brushed up against Will's leg ever so subtly.
+
+"What do you teach?"
+
+"English, of course."
+
+"Oh yes, of course."
+
+She began laughing and covered her mouth with her hand. Will laughed too and took another sip from his beer.
+
+"Hey," he said, leaning in closer, "I've got an idea. Let's dance!"
+
+"You want to dance? Okay!"
+
+She held out her hand and Will took it inside his and stood up, letting her take the lead down to the dance floor. Her body was small and they stepped close to one another on the way down. A rhythmic song was playing and she immediately turned to Will and put his arms around her waist, she draping her arms over his shoulders. Lights from the crystal ball overhead swirled around the room and Will felt dizzy and hot, but ignored everything except making sure his movements were synchronized to hers. After a few minutes he took her hand and held up it and spun her around so that her back was to him. She leaned into him while still swaying to the music. Will found himself bobbing and nodding to the music, the Spanish words. He looked out over the crowd and saw a multitude of others doing the same. Some couples, some by themselves, swaying to the music. Her arm reached up and she grazed his beard with her fingers and continued up to his hair. He met her hand with his own at the top and intertwined his fingers with her own. Her eyes widened up at him and she smiled, then twisted around again so they were facing one another.
