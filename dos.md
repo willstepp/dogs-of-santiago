@@ -1067,3 +1067,71 @@ She began laughing and covered her mouth with her hand. Will laughed too and too
 "You want to dance? Okay!"
 
 She held out her hand and Will took it inside his and stood up, letting her take the lead down to the dance floor. Her body was small and they stepped close to one another on the way down. A rhythmic song was playing and she immediately turned to Will and put his arms around her waist, she draping her arms over his shoulders. Lights from the crystal ball overhead swirled around the room and Will felt dizzy and hot, but ignored everything except making sure his movements were synchronized to hers. After a few minutes he took her hand and held up it and spun her around so that her back was to him. She leaned into him while still swaying to the music. Will found himself bobbing and nodding to the music, the Spanish words. He looked out over the crowd and saw a multitude of others doing the same. Some couples, some by themselves, swaying to the music. Her arm reached up and she grazed his beard with her fingers and continued up to his hair. He met her hand with his own at the top and intertwined his fingers with her own. Her eyes widened up at him and she smiled, then twisted around again so they were facing one another.
+
+He leaned in and put his mouth on her bare neck, just under her left ear. She fell limp in his arms and breathed deeply in.
+
+"Do you want to kiss me?"
+
+Will looked up but did not respond.
+
+"Kiss me."
+
+He kissed her slow and hard, both of them moving in time with the music, which pulsed like a heartbeat. And then it ended. For a moment on the dance floor there was silence as the DJ fumbled with his laptop to bring up the next song. But the spell was broken. Margarita looked at Will and took a few steps backwards.
+
+"I need to use the bathroom," she said.
+
+"Me too."
+
+They both walked off the floor as the next song came on, a more aggressive melody filled the room and the dancers reacted by jumping together.
+
+There was a line to the bathrooms and they each parted to the separate line, glancing at one another, smiling.
+
+Will had a thought about Constanza but immediately put her out of his mind. It came his turn in the stall and he stared at a faded photograph above the urinal of a broken down building in the middle of the city, burned in a fire. He turned to his right and saw a Chilean spitting and wiping his forehead, clearly drunk out of his mind. He finished and waited on Margarita to emerge. When she came out, Will suggested they go upstairs to get another drink. She agreed and they walked together, holding hands, up the staircase.
+
+Will went directly to the bar and ordered a cerveza for himself and a rum and coke for her. He turned and leaned against the bar and found Margarita sitting on one of the couches next to the stairs. Rosa was there and they were chatting and laughing. When the drinks came he brought them over and set Margarita's down on the small table next to her. Neither she nor Rosa looked up when he came over, so he sat down next to Margarita on the couch and sipped on his beer, nodding to the music, surveying the people walking by.
+
+Soon Felipe walked up the stairs and both Rosa and Margarita greeted him with smiles and a hug. He whispered something into their ears and they laughed. Will sat there with his beer. Margarita had not glanced one time in his direction since he returned from the bar. He tapped his feet impatiently and began to feel like he was not invited to the party. Briefly he caught eyes with Felipe, who nodded to him. At that point Margarita turned and noticed Will, but then turned immediately around to Rosa. When his bottle was empty Will stood up and carried the bottle over to the bar and set it down. Then he walked past Margarita, Rosa, and Felipe and continued downstairs. They took no notice of him at all.
+
+Downstairs the room had become a sauna of writhing bodies. The place was packed with dancers, swaying, jumping to the endless rhythms that echoed off the high ceilings and brick walls. Will descended the steps and became one of them. He began swaying the music before he reached the floor and continued when he got there. At this point he didn't give a fuck anymore. And he danced that way too. There was a group of young Chinese girls beside him, all dancing together, glowing neon necklaces around their necks. Will jumped right in the middle of them and did a half split. They recoiled and went off in another direction.
+
+"Go on, then," Will shouted, "Nobody likes Chinese food anyway!"
+
+He stood up and swayed with the music for some time, finding a wall to lean up against. He felt like he needed some support. His head swirling from the noise and the booze. But then he felt a hand rub on his chest and he looked up and saw a woman there, dark-haired, staring him down. She flipped her fingers seductively in his direction, gesturing for him to follow her. So he did.
+
+She was not so pretty as Margarita, somewhat older, harder. But she was sexy as hell, wearing a sheer sequenced skirt and black blouse that draped over one shoulder. Her breasts heaved out of the low-cut top. Her hair was frizzy and tangled. It was hard for Will to make out her face behind all that hair. For no reason at all he laughed as he followed her out onto the dance floor. He had a feeling of deja vu and thought about Margarita, and then he thought about Constanza, and all the other women he had ever been in love with went by in a flash. But put them out of his mind. The present moment was king, after all.
+
+They danced together, Will and this woman, whoever she was. Try as he might, Will couldn't get a good look at her face. He wasn't sure if it was the alcohol or the light or the hair, but he never could get a bead on her eyes. But she could move. Her hands were all over him. He took this as a sign and started putting his hands on her. First her waist, cupping her thin frame with both hands, then wrapping his arms around her and moving slowly closer until they were touching.
+
+He kissed her. She kissed him back. They wrapped their arms around each other and continued to move with the music, now a slow, jazzy tune, but with a lot of bass. He pulled her into his body and felt her leg caress the inside of his thigh. He was hard and was sure she could feel it too. Who was this woman?
+
+"What's your name?"
+
+She did not respond. He asked again, this time leaning in to her ear, brushing her hair over her ears. She didn't know English. She shook her head no in time with the music and he thought it was just as well and continued kissing down her neck and chest.
+
+They danced for a couple more songs, and by this point they were practically copulating on the floor. Her leg was draped around his hip and they dropped and rose with the music. At that point she whispered into his ear, "Hotel."
+
+Will looked at her, nodded, then took her hand and led her off the dance floor. Before he realized it they were outside the club, staring up at the stars in the night sky, a row of people still standing outside in the freezing cold. Down the street were the rows of cabs. He led her by the hand and waved down one of the cabbies and off they went.
+
+"Hotel Riveria," he said to the driver, his face emerging momentarily from her neck.
+
+"Hotel Riveria. Si," the driver said.
+
+"Hey, don't go down Plaza Italia, whatever you do. There are fucking riots down there. Carabineros."
+
+"Si, si," the driver said, admiring the woman's dress from his rearview mirror. He took off at full speed, a dangerous speed Will thought as he buried his face into a deep french kiss.
+
+She was as into him as he was her. Her breathing became heavy and hard. She pulled him closer into her breasts and wrapped her legs around his. He felt her hips and traced the edge of her thong. He glanced up and saw streetlights and people walking, heard honks. Her tongue was moist and hot inside his mouth. She penetrated him over and over again until he fought back and penetrated her, grazing her lips with his teeth ever so roughly.
+
+The cab pulled to a stop, and the driver put the flag down on the meter.
+
+"Hotel Riveria," he said, and then pointed to the price on the digital readout. Will rose and fished five thousand pesos from his wallet and handed it to the man.
+
+"You keep that, señor."
+
+"Gracias, Gracias," said the driver.
+
+Will and the woman stepped out and he shut the door. The driver was off again, leaving them alone on the curb. The streets were empty, dark. There was a small light coming from inside the hotel. At the entrance was the same sleeping dog as earlier in the day. Will opened the door and pushed the dog out of the way, and led the woman inside the lobby.
+
+It was darkly lit inside, the young clerk at the counter was watching YouTube videos on a laptop and ignored them. Will pushed the button for the elevator but it appeared to be out of service, so they instead took the stairs. It was five flights up and Will himself go light headed as they round the third bend. The woman seemed to have limitless energy though, and pulled him up, going faster and faster as they climbed.
+
+At last they arrived at the room and at first Will almost didn't recognize it. But there were his clothes strewn out on the twin mattress. There was his toothpaste on the bathroom sink.

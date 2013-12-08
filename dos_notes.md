@@ -136,4 +136,12 @@ Will is there in the river. He climbs out, becomes confused which direction is M
 
 What happens now? 12-06-2013
 
-Will decides to order another drink to fit into the crowd, blend in. A girl starts talking to him, then a man, the girl says he is her boyfriend but she no longer likes him. the man does not speak english, she barely does. the man nods, will feels weird, but asks her if she wants to dance. He agrees. When they are finished dancing they have trouble communicating. She is an English teacher for little kids. Will excuses himself to go to the bathroom. When he returns to woman is talking to someone else so Will stands there, unsure what to do. Eventually the man she was sitting next to comes up and sits down next to her. They don't acknowledge him again. Will walks down to the dance floor and starts to dance alone.
+Will decides to order another drink to fit into the crowd, blend in. A girl starts talking to him, then a man, the girl says he is her boyfriend but she no longer likes him. the man does not speak english, she barely does. the man nods, will feels weird, but asks her if she wants to dance. He agrees. When they are finished dancing they have trouble communicating. She is an English teacher for little kids. 
+
+What happens now? 12-07-2013
+
+Will excuses himself to go to the bathroom. When he returns to Margarita is talking to Rosa so Will stands there, unsure what to do. Eventually Felipe comes up and sits down next to her. They don't acknowledge him again. Will walks down to the dance floor and starts to dance alone. Another woman starts dancing with him, she is wearing a sheer, glittered skirt and dress, slightly frizzy hair, thinner. They start making out and Will asks if she wants to get out of there. They walk and decide to take a cab to Hotel Riviera. They walk in the lobby, its dark, take the elevator up.
+
+What happens now? 12-08-2013
+
+They have immediate sex, but she insists he pays her, they do and the condom breaks inside her. He panics and she washes herself and leaves Will alone. Will takes an Ambien and cannot sleep, hallucinates. Will has hallucinations, regrets sleeping with the whore, has a dream about his father. What's it like to be a father. Wonderful.
