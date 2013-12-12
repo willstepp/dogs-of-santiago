@@ -145,3 +145,33 @@ Will excuses himself to go to the bathroom. When he returns to Margarita is talk
 What happens now? 12-08-2013
 
 They have immediate sex, but she insists he pays her, they do and the condom breaks inside her. He panics and she washes herself and leaves Will alone. Will takes an Ambien and cannot sleep, hallucinates. Will has hallucinations, regrets sleeping with the whore, has a dream about his father. What's it like to be a father. Wonderful.
+
+FIRST DAY
+25000
+NEXT DAY
+-Gets a message from Constanza, to meet at The Clinic
+-Gets ready to go meet her
+-When he is getting into the cab he sees the cripple man
+-Decides to take him to San Bernardo to see his son
+-Bus trip
+-ShantyTown
+-Reunion
+-Mugging and Stabbed
+-Walks in a Delirium to the Park
+-Witness to the BonFire, where they sacrifice a child
+-Wakes with dog licking his face
+-From the injury and the beatings and withdrawals from the Xanax and Ambien, starts to have jitters, twitching
+-In a delirium follows the dog as it lives its life
+-Watches a car hit it, without doing anything, but feels bad
+-Carries it to the Park, it biting him, and by the time they arrive, its dead
+-Digs a hole and buries it, finds newspaper to cover it up
+-Sees the headline about The Clinic bombing the day before
+15000
+LAST DAY
+-Opens with an interrogation
+-Visit by the psychiatrist
+-Put up in the hotel
+-Next day has breakfast
+-Tells driver to stop at Park Bustamante
+-Watches the life of the city, feels grace
+10000
