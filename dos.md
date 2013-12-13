@@ -1167,3 +1167,18 @@ You could not see outside the windows at all, but there was a dim light radiatin
 "What's it like, to be a father?" Will asked him.
 
 His father replied, "It's wonderful."
+
+
+Chapter Seven
+
+A beam of early-morning sunlight fell across the room onto the bed where Will was not sleeping. He had awoken over an hour ago and lay there staring at the opposite corner of the room, but without really seeing the chair and the small TV on the stand. Outside the rush hour traffic noises came muffled into the room. He heard the people six stories down shuffling to their places of work. A construction crew had torn up the sidewalk just around the corner of Miraflores and there were sounds of jackhammers and men shouting directions. It was seven o clock.
+
+His body was sore from all the walking he did yesterday and his stomach was weak from all the alcohol. His mind was a blur of confused thoughts. He tried to make some sense out of things but gave up and just laid there in contemplation, resting without the benefit of good sleep. It was always like that on Ambien. It knocked you the fuck out for hours, but then you woke up with bags under your eyes and a feeling like you needed a nap.
+
+The stillness in the hotel room had a depressing effect on Will's mood. It was quiet like a church, or like a morgue, and he felt an instinctive desire for movement, for some sign of life, and that finally is what got him to climb out of bed. He picked up the phone to order some room service but the man on the other end only spoke Spanish so he gave up without even trying. He decided to walk down there instead.
+
+He put on some jeans and an old sweater and his flip flops and walked downstairs, bypassing the rickety elevator this time. His knees ached but it felt good to move and he picked up his pace by the third flight down. Nobody else was in the stairwell and he heard his footsteps echo off the walls.
+
+In the lobby things were quiet. The same clerk from yesterday was there, the impatient man. He glanced up from the phone when Will entered and gave him a slight nod. 
+
+

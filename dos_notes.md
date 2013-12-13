@@ -167,6 +167,9 @@ NEXT DAY
 -Digs a hole and buries it, finds newspaper to cover it up
 -Sees the headline about The Clinic bombing the day before
 15000
+
+in a warm, tender embrace.
+
 LAST DAY
 -Opens with an interrogation
 -Visit by the psychiatrist
