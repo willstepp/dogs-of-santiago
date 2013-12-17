@@ -148,25 +148,19 @@ They have immediate sex, but she insists he pays her, they do and the condom bre
 
 FIRST DAY
 25000
+
 NEXT DAY
--Gets a message from Constanza, to meet at The Clinic
--Gets ready to go meet her
--When he is getting into the cab he sees the cripple man
--Decides to take him to San Bernardo to see his son
--Bus trip
--ShantyTown
--Reunion
--Mugging and Stabbed
--Walks in a Delirium to the Park
--Witness to the BonFire, where they sacrifice a child
--Wakes with dog licking his face
--From the injury and the beatings and withdrawals from the Xanax and Ambien, starts to have jitters, twitching
--In a delirium follows the dog as it lives its life
--Watches a car hit it, without doing anything, but feels bad
--Carries it to the Park, it biting him, and by the time they arrive, its dead
--Digs a hole and buries it, finds newspaper to cover it up
--Sees the headline about The Clinic bombing the day before
 15000
+
+1500: Has breakfast, checks email. Gets a message from Constanza, to meet at The Clinic in one hour. When he is getting into the cab he sees the cripple man. For no seeming reason, decides to take him to San Bernardo to see his son on a bus.
+1500: Bus trip, Arrival
+1500: ShantyTown
+1500: Reunion with son and friends
+1500: Mugging and Stabbed
+1500: Walks in a Delirium to the Park
+1500: Witness to the BonFire, where they sacrifice a child
+1500: Wakes with dog licking his face, from the injury and the beatings and withdrawals from the Xanax and Ambien, starts to have jitters, twitching. In a delirium follows the dog as it lives its life.
+1500: Watches a car hit it, without doing anything, but feels bad Carries it to the Park, it biting him, and by the time they arrive, its dead. Digs a hole and buries it, finds newspaper to cover it up. Sees the headline about The Clinic bombing the day before.
 
 in a warm, tender embrace.
 
@@ -177,4 +171,10 @@ LAST DAY
 -Next day has breakfast
 -Tells driver to stop at Park Bustamante
 -Watches the life of the city, feels grace
+
 10000
+
+
+What happens now? 12-16-2013
+
+Will wakes up sore and hungry. Goes downstairs to the cafe and orders an espresso and some pastries. Takes it to his room. Checks his email. There is a message from Constanza apologizing. She says to come to the The Clinic at 1330 for lunch and she will explain everything. Will looks up The Clinic on his laptop, takes a shower, gets dressed. He goes downstairs but just as he is about to hail a cab he notices the old man from the day before, collecting money. He is carrying a sign. Will wonders what the sign says. He gets in the cab, and as the cab stops he stops the driver. He walks over to the man and asks him what the sign says. Asks if he needs money? Gives him some change. Then he stops a passerby and asks what the sign says. "Must visit my son. San Bernardo." The man is missing leg so needs help walking. He has bad arthritis and his hands are curled up. Cannot see well. He asks someone else the best way to get to San Bernardo from here. Take the bus at the corner. Only couple thousand pesos.
