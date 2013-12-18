@@ -1195,6 +1195,120 @@ He reread the message four times, parsing each phrasing of every line, looking f
 
 It was twelve fifteen now. He still needed to shower before heading to The Clinic. He found the address on Google Maps and saw that it was only a ten minute cab ride. Maybe he could even walk there, see the city in daylight. It was a nice, cool day - the sky clear and blue. He quickly took a shower, not waiting for the water to turn warm and put on the only clothes he had left that were not wrinkled, the old sweater and jeans. By the time he was ready it was quarter till one. He fixed his hair in the bathroom mirror, made sure he had the hotel key and wallet, and walked out, repeating the address over in his head so he would remember it.
 
-As he walked out the front door, pushing the old dog sleeping out of the way, he passed by the row of beggars he had tripped over the day before, with the concierge. The same ones were there, even the old man who had caught his eye, the one he felt ashamed to be seen to give money to. He briefly made eye contact with the old man, who smiled at him warmly, and just as he turned away to the street, to hail a cab, he caught a glimpse of the old man as he turned away, and saw his eyes drawn down into an expression of sorrow and endless suffering. He only saw the expression for a second, half a second, but it shocked him so much he forgot about the cab, about Santiago, Constanza, and all the rest for the next second. And then it was over. And things were back to normal. The people on the street continued, the cars drove past in a hurry, the old man and others shook their styrofoam cups at passersby. And Will stood there, his hand raised for a cab.
+As he walked out the front door, pushing the old dog sleeping out of the way, he passed by the row of beggars he had tripped over the day before, with the concierge. The same ones were there, even the old man who had caught his eye, the one he felt ashamed to be seen to give money to. He briefly made eye contact with the old man, who smiled at him warmly, and just as he turned away to the street, to hail a cab, he caught a glimpse of the old man as he turned away, and saw his eyes drawn down in suffering. He only saw that face for a second, perhaps less, but it paralyzed him where he stood. He forgot about the cab, about Santiago, about meeting Constanza and all the rest. And then it was over. And things were back to normal. The people on the street continued, the cars drove past in a hurry, the old man and others shook their styrofoam cups at passersby. Will stood there, his hand raised for a cab.
 
-Soon a cab pulled up quickly to the curb, Will wasted no time and jumped in the back seat. He gave the driver directions to the Clinic, but the driver nodded before he finished, knowing the place. He put down the flag, looked over his shoulder, and pulled back into the street. Will sat back and glanced out the window towards the group of beggars. There, on the old man's lap, was a crudely drawn sign, in green marker.
+Soon a cab pulled up quickly to the curb, Will wasted no time and jumped in the back seat. He gave the driver directions to the Clinic, but the driver nodded before he finished, knowing the place. He put down the flag, looked over his shoulder, and pulled back into the street. Will sat back and glanced out the window towards the group of beggars. There, on the old man's lap, was a crudely drawn sign in green marker.
+
+"Stop," Will said, "Let me out here. I changed my mind."
+
+The driver stopped the cab and turned around to face him with an annoyed look.
+
+"Here, señor?" 
+
+"Si, muchas gracias," Will handed him a thousand pesos and got out.
+
+The tires screeched as the taxi drove off before the light at the corner changed. Will walked over to the group of beggars and specifically to the old man with the sign. He pointed at the sign and asked the man what it said, but nobody understood him.
+
+"What does that sign say?" Will repeated, but the old man just smiled at him, shaking the cup with a feeble hand. He turned to the pedestrians and looked for someone who might know English. He asked a lady wearing a red scarf over her hair but she didn't know. He asked a short man with a cane but he ignored him. Then he remembered the landlord of the Riveria.
+
+"Señor," Will said to the landlord, who was talking to one of the hotel staff behind the counter. The landlord looked up.
+
+"Si?"
+
+"Can you follow me please?" Will waved him towards the door and the landlord, reacting as if something bad had happened, followed him quickly outside.
+
+"What is it, sir? Has something happened?"
+
+"No," Will replied. He walked him over to the group of beggars and pointed at the sign the old man was holding, "I need to know what this sign says. The one there." He pointed to it.
+
+"It says, must travel San Bernardo. See my son."
+
+"Where is San Bernardo?"
+
+"Hold on, my friend, what is this about? That man is an old drunk and I must return to work now. Please do not waste my time. Thank you," The landlord turned abruptly and walked back inside, offended.
+
+"Where is San Bernardo?" Will asked the old man. The man grinned.
+
+"Si, San Bernardo," he pointed with his hand towards the buildings across the street.
+
+"But where? I want to help you, but I don't know where that is."
+
+Once again he stopped people on the sidewalk, asking if they spoke English, where San Bernardo was. After some time he remembered the Spanish for what he wanted to know.
+
+"Hola," he stopped a couple, "Que es San Bernardo? No comprende Espanol. Do you speak English?"
+
+"Si," the man said, "yes, I know a little. You want to find San Bernardo?"
+
+"Yes, do you know how to get there?"
+
+"From here I don't know," the man turned to the woman next to him and they conversed in Spanish.
+
+"Maybe try the bus. The bus will take you there."
+
+"How far is it to San Bernardo from here?"
+
+"Que?"
+
+"How far is it?" Will stretched out his arm.
+
+"Ah, not too far. Less than an hour by bus. It is outside Santiago. Not too far."
+
+"Good," Will said, "Muchas gracias." 
+
+He shook the strangers hand and the continued on their way. Will approached the old man and knelt beside him.
+
+"San Bernardo, si?"
+
+"Si, San Bernardo."
+
+"Come, señor. I will help you find a bus that will take you there."
+
+Will reached underneath the old man's arm and helped lift him onto his feet. The blanket across the man's knees fell away and Will saw the old man was missing one leg at the knee. He wrapped one arm around the man, who hopped weakly in place until he found his footing. One of the others passed up a single wooden crutch for the man to use. Will handed the crutch to the man and saw his hands were gnarled with arthritis, so he tucked the single crutch under his opposite arm. He picked up the blanket and placed it over his shoulders.
+
+"Let us find the bus stop, señor."
+
+"San Bernardo, si?"
+
+"Si," Will replied, "San Bernardo."
+
+With one arm around the old man's waist, he walked with him down the sidewalk at a very slow pace, one crutch movement at a time. People passed them like they were standing still, but soon they were around the corner down Moneda and saw the bus stop a few blocks down. Will pointed it out and the old man nodded and concentrated on placing his crutch in the right spot. Will made sure to let him do most of the work to walk, his arms were only there for support, in case he lost balance, which did happen.
+
+At the bus stop they sat on the benches and waited for the next bus. When it arrived Will asked the driver, "San Bernardo?" and the driver responded but Will did not understand what he said. So he asked a few passengers where the bus to San Bernardo was. A young girl wearing earbuds answered him from three rows back.
+
+"You need to wait for the Los Condes bus, go to Los Condes station and get on San Bernardo there."
+
+Will thanked her, got off the bus, and sat down next to the old man to wait for the bus to Los Condes. He had not intended to take the man all the way to San Bernardo, only put him on the bus and pay for the fare. But that was ridiculous. He could see the man would never make it there on his own. How in the world did he make it anywhere? Will felt sorry for him but remembered Constanza and felt his chance to make amends with her slip away. It was already one. He imagined her there at The Clinic, waiting for him, thinking he had standing her up because she did not look like Ana Tijoux. He pulled out five thousand pesos, took the old man's hand and stuffed them in.
+
+"Good luck, my friend," Will said.
+
+"Si, si," the old man nodded, smiling. 
+
+Will could then smell the alcohol on the old man's breath, some cheap whisky that burned his nostrils. He shook the old man's hand and walked towards the curb to hail a cab to the Clinic, but at that point the Los Condes bus pulled up to the stop. Will turned and pointed to the bus.
+
+"That's your bus, señor," Will said. The old man smiled.
+
+"San Bernardo, si."
+
+"No, first you have to take the bus to Los Condes. Don't you know that yourself? The girl told me just now."
+
+Will walked back to him and took him by the arm.
+
+"You have to get on this bus. Its going to leave if you don't get on now."
+
+Will picked up the crutch and hopped along with the man over to the opened door of the bus. He leaned inside and asked the driver.
+
+"Los Condes to San Bernardo? Si?"
+
+The driver tried to comprehend his broken Spanish and nodded, "Si, Los Condes San Bernardo. Si."
+
+Will walked up and handed the driver a few thousand pesos. The driver refused to take it and pointed to a change that Will roughly took to mean "Exact Change." He didn't know what to do for the space of fifteen seconds, in which time a line had accumulated behind the old man at the door. Will felt the impatience from all sides. Then he saw a Bip! logo and remembered the Bip! card he bought yesterday at the metro. He pulled it from his wallet and handed to the driver. The driver scanned the card and handed it back to Will.
+
+"Gracias," Will said, "Gracias."
+
+He went to the old man and helped him up the steps, then led him down the narrow corridor to an empty bench. There weren't many empty spots, but an older couple slid over and Will helped the old man down onto the seat. The woman next to him wrinkled her nose in subtle disgust.
+
+"Are you okay now?" Will asked the man, "I must go meet somebody. I am late, but can you make it to San Bernardo from here?"
+
+The old man looked tired and nodded to Will, although it was clear he barely knew where he was and couldn't possibly understand the English Will was speaking to him. Will heard the doors shut and immediately the bus heaved forward, throwing him off balance. He reached for the overhead handles and caught himself. Then shouted to the driver to let him off, but the driver acted like he couldn't hear. Now they were in traffic, in motion, and Will took a seat next to the old man, now resigned to his fate. The old man nodded off and Will wondered why he was here, what he was doing, and what was wrong with him that made him do reckless things like this. He glanced at his phone, one twenty. He was already late. He watched the traffic going by and tried not to smell the old man sitting next to him.
+
+In Los Condes, the bus pulled to a large station, obviously the end of the line. The driver came on the intercom but Will had no idea what he said, but caught San Bernardo out of the words.
