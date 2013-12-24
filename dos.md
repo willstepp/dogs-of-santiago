@@ -1,7 +1,9 @@
 THE DOGS OF SANTIAGO
 by Daniel Stepp
 
-Chapter One
+I.
+
+One
 
 As he stepped off the plane onto the walkway between the exit door and the terminal gate, he felt a bitterly cold July wind whip in through one of the slits in the fabric joins. He weaved through the passengers, stumbling and bleary-eyed, and found his way to the nearest restroom, where he found some jeans he had brought just in case, and an old flannel shirt he kept tucked in a side pouch of his duffle. 
 
@@ -112,7 +114,7 @@ Beyond the city he saw the mountains, the Andes. How far was it there, to those 
 He awoke still in the taxi, the driver stopped in construction traffic, frustrated and banging on the steering wheel. It was raining. Outside were people walking past, making better time than the cars. It took him a few moments to realize he was in Chile, took some time before the events of the morning came back to him. He reached into his duffle bag and pulled out his journal. Between two pages was a folded photograph. He opened it and gazed at the dark-haired woman staring back at him. She was beautiful.
 
 
-Chapter Two
+Two
 
 Curled up inside the doorway to the Hotel Riviera, a gray mutt of some kind lay oblivious to the world, preventing the old doors from opening fully. The man was soaked through by this point and had his duffle stacked on top of his luggage, which was being wheeled behind him. A stream of water fell down over the green fabric overhang of the entrance onto his bag. The man pushed hard against the door and slid the dog out of the way with it. He then twirled his luggage around and pushed them through the door first, holding the door with one hand.
 
@@ -253,7 +255,7 @@ At last it was obvious to him they were working, those dogs. He watched them pas
 Now the lights of the city were brighter than the evening sky, which now appeared as deep blue clouds when you looked over the building tops down the avenue. The dogs came to a restaurant called the Hotel California, where the smell of grilled meat and the sound of clinking mugs of beer and loud music swirled through the street outside. The dogs ducked into a small space between the restaurant and disappeared. Will stopped at the entrance and looked inside. There was a game on the big screen TV and people laughing and smoking at the bar. Upstairs he saw a couple cuddling against the window. He went inside.
 
 
-Chapter Three
+Three
 
 Will ordered a burger and cerveza from the menu and then stared at the bar top in a deep contemplation. All around him the patrons were having a good time. When the beer came, he drank it down quick, with a Xanax, and then just waited for the numbness to take hold. By the time the burger came he was barely conscious of wolfing it down. It surprised him to see the clean plate in front of him. He let out a deep belch and and held the empty mug up to the bartender. The bartender nodded and filled his mug. He thought about ordering another burger, just for the hell of it, but decided to drink the calories instead. He felt the numbness come over him and forgot about Constanza, the reason he came down to this Godforsaken country in the first place.
 
@@ -666,7 +668,7 @@ Ben laughed.
 The both of them rounded the corner and headed down Pedro De Valdivia towards Plaza Italia.
 
 
-Chapter Four
+Four
 
 It was a cold night, clear. Gazing up the stars were visible even with the street lights. Will and Ben walked a brisk pace towards Plaza Italia. Traffic was light, a cab every now and then. They passed the Los Leones metro entrance and saw the gates were pulled down, even though it was still early. A homeless man asked Ben for a light at a bus stop. They stopped and then resumed almost without missing a beat.
 
@@ -807,7 +809,7 @@ Will felt he was was not in a good state of mind to be entering a crowded space.
 As he came around a turn in the road, immediately he saw lights in the distance, brightening the face of buildings down at the end of the road. He saw people, cars. He heard the roar of a crowd, music. He kept walking. As he got closer he could make out more and more specific sounds, there was a band playing in the small courtyard of a place in the park. Will started to make out the large screen. He saw the larger than life players on the screen. Then, when he got very close, and the plaza opened up, he saw a large group of protesters off the side, standing in an open concrete courtyard. There was a metro entrance there, Baquedano, also gated. The protesters were nearly all young, angry, some had the same meanness in their eyes. They wore military jackets and earrings, carried signs with slogans Will could not understand. But he recognized the symbols they bore: a fist raised in anger, a gas mask inside out, a dollar sign made out of flowers, a baby with a skeleton head, the Chilean flag burning.
 
 
-Chapter Five
+Five
 
 Now there were dozens, perhaps hundreds of people surrounding him. He continued making way through the crowds. Then there was a tightness in his chest that at he first he could ignore but slowly came over him like a panic. He stopped, knelt on one knee, and caught his breath, taking a few deep inhales. It was not a heart attack, his inner voice reassured him, only some anxiety, brought on by the people. Stars appeared at the corner of his eyes and floated away. He gazed up at the jumbotron and followed the game. He saw a player in blue shorts take a dive then swept his leg towards the spinning ball at the moment before landing, the ball angling off his foot towards the goal. It hit the net with a tremendous force and in unison the wall of spectators surrounding him leapt on their feet and cried out in joyful applause. Will joined them, shouting and waving his arms.
 
@@ -910,7 +912,7 @@ It was dark but he could see the outlines of the large trees there, the black li
 He emerged from the park onto a narrow road paved with cobblestones. The night air was cold on his skin, and now that he was calmer he felt the chill and shivered. Goosebumps ran up his arms and he folded them into his chest for warmth. Crossing the road he came upon a small chain fence. He walked some ways down and heard moving water coming from somewhere nearby. He stopped and listened for it. There it was, on the other side of the fence. He placed two hands on the fence rail and heaved himself over the side, not counting for the steepness of the bank and tumbled down a grassy slope into the freezing river.
 
 
-Chapter Six
+Six
 
 The water was shallow and cold. Very cold. Will stood up in the river and watched the water flow around his legs in the moonlight. He cupped some of the water in his hands and spread it over his head, slinging back his hair in his hands. The water washed the blood from his wound. He walked over to the bank and climbed out again. He fell to the grass and lay there, not moving. He listened for the sounds of the protest and heard them far off. It was hard to tell how far. He needed to keep moving, to get as far away as possible. What had he done there? The stars in the sky shone bright overhead. Will gazed at them for some time before he returned to his senses. It was dark. He could see a long way down the street, but all the stores fronts and signs were darkened. He wondered what time it was. Now that the adrenaline was leaving his bloodstream he felt the briskness of the night air on his forearms and he noticed the alcohol still affecting his perception. He was not afraid. He was lost.
 
@@ -1169,7 +1171,9 @@ You could not see outside the windows at all, but there was a dim light radiatin
 His father replied, "It's wonderful."
 
 
-Chapter Seven
+II.
+
+Seven
 
 A beam of late-morning sunlight fell across the room onto the bed where Will was not sleeping. He had been awake since seven according to the digital clock on the nightstand, and lay there looking at the opposite corner of the room without really seeing the chair and the small TV which inhabited it. Outside the traffic noise continued without stopping, until it was only a muffled roar that your ears ignored. A construction crew had torn up the sidewalk just around the corner of Miraflores and there were sounds of jackhammers and men shouting directions in Spanish. It was now eleven fifteen.
 
@@ -1305,10 +1309,44 @@ Will walked up and handed the driver a few thousand pesos. The driver refused to
 
 "Gracias," Will said, "Gracias."
 
-He went to the old man and helped him up the steps, then led him down the narrow corridor to an empty bench. There weren't many empty spots, but an older couple slid over and Will helped the old man down onto the seat. The woman next to him wrinkled her nose in subtle disgust.
+He went to the old man and helped him up the steps, then led him down the narrow corridor to an empty bench. There weren't many empty spots, but an older couple slid over and Will helped the old man down onto the seat. A young woman next to him turned away in subtle disgust and pretended he wasn't there.
 
-"Are you okay now?" Will asked the man, "I must go meet somebody. I am late, but can you make it to San Bernardo from here?"
+"Are you okay now?" Will asked the man, "I have to go meet somebody. I am late, but can you make it to San Bernardo from here?"
 
-The old man looked tired and nodded to Will, although it was clear he barely knew where he was and couldn't possibly understand the English Will was speaking to him. Will heard the doors shut and immediately the bus heaved forward, throwing him off balance. He reached for the overhead handles and caught himself. Then shouted to the driver to let him off, but the driver acted like he couldn't hear. Now they were in traffic, in motion, and Will took a seat next to the old man, now resigned to his fate. The old man nodded off and Will wondered why he was here, what he was doing, and what was wrong with him that made him do reckless things like this. He glanced at his phone, one twenty. He was already late. He watched the traffic going by and tried not to smell the old man sitting next to him.
+The old man looked tired and nodded to Will, although it was clear he barely knew where he was and couldn't possibly understand the English Will was speaking to him. Will heard the doors shut and immediately the bus heaved forward, throwing him off balance. He reached for the overhead handles and caught himself. Then shouted to the driver to let him off, but the driver acted like he couldn't hear. Now they were in traffic, in motion, and Will took a seat next to the old man. The old man nodded off and Will wondered why he was here, what he was doing, and what was wrong with him that made him do reckless things like this. He glanced at his phone. It was already one twenty. He was late. He watched the traffic going by and tried not to be angry at the crippled man sitting next to him.
 
-In Los Condes, the bus pulled to a large station, obviously the end of the line. The driver came on the intercom but Will had no idea what he said, but caught San Bernardo out of the words.
+Eight
+
+In Los Condes the bus pulled into a large station, obviously the end of the line. The driver came on the intercom but Will had no idea what he said, but did catch him say 'San Bernardo' and thus knew they were on the right line.
+
+With some trouble he hooked his arm underneath the old man's waist and pulled him to his feet. The man helped as he could, but not much, although he did grab hold of the crutch and support himself as they inched down the narrow isle to the exit. Will felt the passengers behind him grow impatient at their frequent stops to realign themselves.
+
+As they exited the bus, Will looked around for the next stop. All the buses down the line had signs indicating their destinations but he didn't recognize any of them. There were people walking quickly from bus to bus, making their connections. It was difficult to weave through the crowd with the old man on his arm. A harsh wind blew through the covered terminal and rattled the plexiglass windows behind which ticket clerks stood. Will was not dressed for the cold and shivered; the old man was only wearing thin pants and a linen shirt and noticed when Will shivered, leaning closer into him for warmth.
+
+They passed a policia on patrol in the terminal. Will stopped him and asked simply, 'San Bernardo.' The policia pointed to the other end of the terminal and kept walking, eyeing them suspiciously. Eventually they found the San Bernardo bus and a crowd of people standing in a group beside it. The doors were shut. Will found an empty place on a bench and sat them both down.
+
+Ever so slowly the effects of the morning's Xanax had worn off and Will felt the nervousness and agitation return. His arm vibrated. He had left his pill bottles at the hotel, expecting to return before dinnertime, but now that was looking unlikely. He breathed in deep for a few minutes and closed his eyes. Once in San Bernardo he would drop the old man off, return on the next bus, and cab it from the terminal to the Riveria. Fuck the price. He had to get back to feeling right. Couldn't let it get bad down here. Unconsciously his head had begun to bob and his fingers tapped on his thigh. Write Constanza and tell her he got sidetracked. It was good actually, brushing her off like this, let her know he's not wrapped around her finger just yet.
+
+Then there was a strong smell of piss. The old man had nodded off next to him and there was a large, growing wet spot on his pants. He shook the old man and pointed to the spot on his pants, the man looked down and grinned at Will, then yawned.
+
+"Banos?" the old man asked Will.
+
+"I don't know where a bathroom is. Do you really need one now? It looks like you've already done your business. I don't know."
+
+The man pointed to the middle of the terminal and Will spotted two doors for men and women. He picked up the old man and they shuffled over to the bathroom. Will propped open a stall and the man sat down on the toilet, setting the crutch down, undoing the clasp on his pants with one hand. Will walked off and washed his hands in the sink. Some of the piss had gotten on one of his pants legs and he splashed water on it and dried it with a paper towel. He heard the man in the stall groan in pain and stood quietly outside the stall until he had finished. The man could not see Will from where he was and let out a desperate plea, "Hola, señor. Hola!"
+
+Will helped him get his clothes back on, braced him around the waist and carried him over to the sink, where he soaked his pants leg with water like he did his own. The piss smell was still there but lessened. By the time they emerged the bus to San Bernardo was loading and they got on and found a seat towards the back. A few people near them got a good whiff and switched seats to be further away. When the bus finally pulled away from the station there was a two or three seat radius around them.
+
+The drive to San Bernardo was on a stretch of highway. The tightly packed buildings of the central city gave way to more spread out suburbs, factories, businesses. In the distance the looming Andes snowcaps dwarfed everything. Will stared out the window and watched the traffic and took in the sights. It was the end of the business day, about four thirty, and people were heading home for the evening.
+
+When they entered the area Will took to be San Bernardo, he woke the old man and gestured outside. The old man nodded and leaned forward as if looking to see where the next stop was. He said something in Spanish Will did not understand and nodded with reassurance. A few stops later the man poked at Will and Will immediately stood up and helped him to his feet. As they walked the aisle he felt the eyes on himself and the old man, but paid them no mind.
+
+Once off, Will was now dependent on the old man to direct him where they needed to go. Luckily he was aware of his surroundings and pointed them down the street. The air was cool and the sun was hanging just above the mountains to the west and the entire valley seemed tinged a deep orange. Traffic was minimal, in fact the streets felt somewhat empty, and Will made sure to mark the streets in his mind as they turned and turned again. Most of the time they walked along a high stone wall. Will wanted to ask how much further it was but didn't want to go to the trouble of trying to communicate that to the old man. His arm was becoming tired and he felt too the old man growing weak.
+
+By now they had walked almost fifteen minutes and Will had lost count of the turns, but knew just by following the wall he could make it back to the bus stop. His anxiety had increased and he now felt his heart pounding in his chest and heard a slight ringing in his left ear that went away and came back at random. He had visions of collapsing there on the sidewalk, with nobody around to help him, the old man useless in his condition. He did his best to put those thoughts out of his mind.
+
+It was dusk, five fifteen according to Will's phone, but there was still a good bit of light in the sky. They walked a long stretch of road beside a main road where the traffic zoomed by them at high speeds. They passed a small restaurant in an old broken down house and smelled fried fish. Will's stomach growled. He wondered when the last time the old man had eaten and thought to take a break and go in there for some food, for the both of them, but by now he could tell the old man was single minded on getting back to his home in San Bernardo, to his son.
+
+They entered an area that was run down. Houses with broken windows and collapses roofs weatherproofed with sheets and tarps. The people they met watched them with suspicious eyes and called out to one another. Will suspected it was his presence that caused all the alarm. They made slow progress down this street. There was almost no sidewalk anymore, just a small stone walkway beside the street. The street itself was not paved, only graveled with mud puddled scattered here and there. At some point they began walking on the street itself.
+
+Finally, the old man pointed to a break in the wall and he saw vast rows of shacks beyond the wall, stretching over the hills nearly as far as he could see in the twilight. There were a few lights popping up. Will wanted to stop for a moment to rest his arms. He had been carrying the man since the bus stop. But when he tried to stop the old man encouraged him to keep going, gesturing to the shacks that it was not much further. So Will kept going. He continued walking, his eyes on the ground, letting the old man choose the route they walked. He was only a beast of burden at this point, the arms and legs of the operation. He saw beer cans and cigarette butts among the gravel mud and patches of grass. He saw a needle on the side of the curb. They passed a few more groups, young men, who eyed Will with contempt and disdain. He wondered if this route was the best route to return from and looked around for any alternate roads, but it was so dark by now it was hard to make anything out but shadows. It was a mistake to come here.

@@ -155,14 +155,14 @@ NEXT DAY
 1500: Has breakfast, checks email. Gets a message from Constanza, to meet at The Clinic in one hour. When he is getting into the cab he sees the cripple man. For no seeming reason, decides to take him to San Bernardo to see his son on a bus.
 1500: Bus trip, Arrival
 1500: ShantyTown
-1500: Reunion with son and friends
+1500: Reunion with son and friends (piss in his cup, everybody laughs, including the old man)
 1500: Mugging and Stabbed
 1500: Walks in a Delirium to the Park
 1500: Witness to the BonFire, where they sacrifice a child
 1500: Wakes with dog licking his face, from the injury and the beatings and withdrawals from the Xanax and Ambien, starts to have jitters, twitching. In a delirium follows the dog as it lives its life.
 1500: Watches a car hit it, without doing anything, but feels bad Carries it to the Park, it biting him, and by the time they arrive, its dead. Digs a hole and buries it, finds newspaper to cover it up. Sees the headline about The Clinic bombing the day before.
 
-in a warm, tender embrace.
+they came together in a warm, loving embrace.
 
 LAST DAY
 -Opens with an interrogation
@@ -183,3 +183,8 @@ Will wakes up sore and hungry. Goes downstairs to the cafe and orders an espress
 What happens now? 12-17-2013
 
 He gets in the cab, and as the cab stops he stops the driver. He walks over to the man and asks him what the sign says. Asks if he needs money? Gives him some change. Then he stops a passerby and asks what the sign says. "Must visit my son. San Bernardo." The man is missing leg so needs help walking. He has bad arthritis and his hands are curled up. Cannot see well. He asks someone else the best way to get to San Bernardo from here. Take the bus at the corner. Only couple thousand pesos. He walks the man to the nearest bus stop and tries to pay for a fare, but it only takes exact change. He remembers the Bip! card he bought at the Subway, gets it out. There he plans to pay for the man to get on the bus, but the man nearly collapses when he walks away. Will goes back and walks him to a seat on the crowded bus. Then the door pulls closed and the bus drives off. Will shouts but the driver does not listen. He sits with the old man on the route to San Bernardo.
+
+
+The Koons and their teenage grandsons came to Chile to help distribute wheelchairs to people who desperately needed them. They went from the most miserable shanty towns built on a garbage dump in San Bernardo, to Valparaiso to deliver the chairs.
+
+Elena Herrera met Sergio Enrique at the central market in Santiago. He was blind from diabetes and unable to walk. He slept outdoors and was growing steadily more ill. Though he was a complete stranger and she has 9 children that she is raising alone in a small shack in the middle of a shantytown of San Bernardo, she took him home and has been taking care of him for the past 10 years. Every day she would take him to the market on the make-shift cart she invented (visible on the left) where they sell whatever they can find to make their living. When they received the wheelchair, he was so happy that he literally wept for joy. Elena told us, “This wheelchair is like a Mercedes Benz for us after using that cart all this time!”
