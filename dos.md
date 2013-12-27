@@ -5,9 +5,7 @@ I.
 
 One
 
-As he stepped off the plane onto the walkway between the exit door and the terminal gate, he felt a bitterly cold July wind whip in through one of the slits in the fabric joins. He weaved through the passengers, stumbling and bleary-eyed, and found his way to the nearest restroom, where he found some jeans he had brought just in case, and an old flannel shirt he kept tucked in a side pouch of his duffle. 
-
-A fat man, Chilean, emerged from the last stall. He looked surprised to see a half-naked American there, but made no eye contact and walked straight out without a nod. The man pulled up his jeans and washed his face in the dirty sink. He caught himself in the mirror. The dim neon lights shadowed his face with older and more tired lines. He never could sleep on a plane, or a bus, or any other place for that matter. Not without pills anyway. And he wanted to conserve them for when it got bad again.
+As he stepped off the plane onto the walkway between the exit door and the terminal gate, he felt a bitterly cold July wind whip in through one of the slits in the fabric joins. He weaved through the passengers, stumbling and bleary-eyed, and found his way to the nearest restroom, where he found some jeans he had brought just in case, and an old flannel shirt he kept tucked in a side pouch of his duffle. A fat man, Chilean, emerged from the last stall. He looked surprised to see a half-naked American there, but made no eye contact and walked straight out without a nod. The man pulled up his jeans and washed his face in the dirty sink. He caught himself in the mirror. The dim neon lights shadowed his face with older and more tired lines. He never could sleep on a plane, or a bus, or any other place for that matter. Not without pills anyway. And he wanted to conserve them for when it got bad again.
 
 "Muchas gracias, señor," he greeted his reflection.
 
@@ -1166,9 +1164,9 @@ In the front yard was a 1953 Buick, faded blue, the paint and windows covered in
 
 You could not see outside the windows at all, but there was a dim light radiating through the mildew and ice, illuminating the front seat. His father was there, beside him. Will was not afraid to see him there. He was glad his father was there, old and gray, dressed in a suit like he was at the funeral. They did not speak, only sat there together for an indeterminate time in silence, a peaceful warm silence that filled him with a sense of belonging, a sense of home.
 
-"What's it like, to be a father?" Will asked him.
+"What is it like, to be a father?" Will asked him, finally.
 
-His father replied, "It's wonderful."
+"Wonderful."
 
 
 II.
@@ -1349,4 +1347,96 @@ It was dusk, five fifteen according to Will's phone, but there was still a good 
 
 They entered an area that was run down. Houses with broken windows and collapses roofs weatherproofed with sheets and tarps. The people they met watched them with suspicious eyes and called out to one another. Will suspected it was his presence that caused all the alarm. They made slow progress down this street. There was almost no sidewalk anymore, just a small stone walkway beside the street. The street itself was not paved, only graveled with mud puddled scattered here and there. At some point they began walking on the street itself.
 
-Finally, the old man pointed to a break in the wall and he saw vast rows of shacks beyond the wall, stretching over the hills nearly as far as he could see in the twilight. There were a few lights popping up. Will wanted to stop for a moment to rest his arms. He had been carrying the man since the bus stop. But when he tried to stop the old man encouraged him to keep going, gesturing to the shacks that it was not much further. So Will kept going. He continued walking, his eyes on the ground, letting the old man choose the route they walked. He was only a beast of burden at this point, the arms and legs of the operation. He saw beer cans and cigarette butts among the gravel mud and patches of grass. He saw a needle on the side of the curb. They passed a few more groups, young men, who eyed Will with contempt and disdain. He wondered if this route was the best route to return from and looked around for any alternate roads, but it was so dark by now it was hard to make anything out but shadows. It was a mistake to come here.
+Finally, the old man pointed to a break in the wall and he saw vast rows of shacks beyond the wall, stretching over the hills nearly as far as he could see in the twilight. There were a few lights popping up. Will wanted to stop for a moment to rest his arms. He had been carrying the man since the bus stop. But when he tried to stop the old man encouraged him to keep going, gesturing to the shacks that it was not much further. So Will kept going. He continued walking, his eyes on the ground, letting the old man choose the route they walked. He was only a beast of burden at this point, the arms and legs of the operation. He saw beer cans and cigarette butts among the gravel mud and patches of grass. He saw a glass coke bottle on the side of the curb. They passed a few more groups, young men, who eyed Will with contempt and disdain. He wondered if this route was the best route to return from and looked around for any alternate roads, but it was so dark by now it was hard to make anything out but shadows.
+
+Before long they were within the boundaries of the shanty village. Squat, drab-colored shacks built from scraps of wood, corrugated tin, plastic tarps. There was a thick rotten-egg smell of garbage and underneath all that, sewage. They crept along the main path through the village, a dirt road. As they past the low-roofed homes Will saw eyes peering at them from darkened windows or sometimes candlelight.
+
+"Where do we go from here?" Will turned to the old man, who had been silent, head down, ever since they reached the village. The old man said something in Spanish and nodded in the direction they were headed.
+
+They approached a platform of wood connecting with narrow wooden stairs. As they descended Will grabbed hold of the loose handrails and felt the creak of thin boards beneath their feet. It was difficult to step in sync with the old man, his weak legs and ankles struggled to find the next step down each time, as if expecting there not to be a step. Down they went. It was impossible to see more than twenty feet in front of them, where they were headed. It seemed impossible they would ever find the home. Will did not trust his old eyes, old memory to navigate them successfully and was growing increasingly impatient. The smell of sewage was stronger here. Will looked at his feet and saw a narrow ditch just below the steps, an open sewage line. He nearly wretched a couple times. The old man laughed.
+
+At the bottom were more shacks, each piled on top of the other, added onto another. They all looked the same. Every once in awhile one shack would be painted a bright pastel blue or pink, yellow. These were the nicer shacks. Will looked up and saw a series of outdoor power cables spanning from shack to shack, tied together with twine. Somewhere perhaps somebody had figured out how to wire into the city's grid and got whatever power they had here. Some of the places were lit by incandecent bulbs.
+
+His arm was just about to give out. Will found a bench and sat down with the old man.
+
+"I just need to rest a bit."
+
+They sat in silence. The old man did not speak or move. He only looked down at the ground. Now that the sun had gone down the temperature had dropped a few degrees already. Will tucked his hands in his armpits and curled into his sweater for warmth. Though it was cold outside he was sweating from the exertion of carrying the old man. In the silence you heard the people inside the shacks. There was a baby crying, a couple fighting nearby. Somewhere higher up was a game being blasted out for everyone to hear. There were grunts and shouts. Anytime someone noticed Will their eyes fixed on him and would not look away, as if sensing danger. It made him uncomfortable.
+
+It was past time for another Xanax and he could feel the encroaching anxiety. His heart rate was beating faster than it should be and his left arm buzzed. He needed to find the old man's place, drop him off with the son, and head immediately back to the bus stop. Perhaps even grabbing a cab.
+
+He stood and and reached underneath the old man's arm to lift him up as well. The man groaned in pain.
+
+"Where do we go now?" Will asked, "Which way?"
+
+The old man was unresponsive. He seemed about to fall asleep on Will's shoulder.
+
+"Hey, don't go to sleep. You need to tell me which way. It's too dark to tell which way to go. Tell me which way."
+
+The man let out a string of instructions in exasperation, none of which Will could understand.
+
+"I can't understand you. Just point the way to me. Point."
+
+Will pointed down the alley next to them and the old man nodded and pointed also down the same alley.
+
+"This is the right way? The way to your house?"
+
+The man pointed again, "Si, si."
+
+It seemed odd the random direction he had pointed was the right way to go, but Will acquiesced and started walking them both in that direction.
+
+They came to a large mud puddle and before noticing walked right into it. The water came halfway up Will's ankle. He cursed at the water's coldness. The old man had no reaction at all, just sloshed his feet through the muck.
+
+The houses down here were a little nicer, a little cleaner than the ones above. The alley stretched wide into a smooth dirt path and their way became easier to navigate.
+
+Here there were more people outside, standing in the cold. Next to one place was a large barrel with a fire inside, a crowd stood around it warming their hands, laughing with one another. But when they saw Will and the old man approach they grew quiet and eyed them both with suspicion. Will anyway. One of them spoke to the old man in Spanish. The old man laughed. Will wondered what they had said to one another but when he made eye contact with the man he looked away, disgusted.
+
+Then the old man stopped in his place. He looked around in confusion, shaking his head.
+
+"What is it? Are we in the right place? Are we here?"
+
+The old man pointed back the way they came, past the group warming their hands in the barrel of fire.
+
+"Well, why didn't you say. Do you know the way? Maybe we can ask those people? Do you know them?"
+
+He knew it was useless to ask such questions to the old man, in English, but he felt like he had to articulate something, to feel like he was doing something. The old man did not answer.
+
+They turned and went back in the direction they had come, this time when passing the group beside the fire, Will walked them over and tried to communicate.
+
+"Hola, donde casa de hombre?" He said, pointing to the old man.
+
+The man who spoke earlier lifted his hands from the fire and eyed Will with menace. He spoke very slowly in Spanish that Will could not make out. Will reached out in both directions.
+
+"Donde casa?"
+
+A few of the others pointed up the road, to the left of where they were standing, a little back alley.
+
+"Gracias," Will nodded to them all, "Muchas gracias."
+
+They did not respond, but only returned to the fire, their faces glowing in the evening darkness. 
+
+Will guided the old man up the alleyway in the hope he would recognize the area soon and lead him to the right place. It was a narrow and dimly lit corridor, barely enough room for them both to walk side by side. They passed houses with candlelights inside, saw shadows inside moving, families, children, heard them laughing, playing, fighting, eating dinner.
+
+Soon the old man stopped in his tracks and faced one of the homes, a poorly decorated shack among the others, small with a tiny wooden particle board for the door. On the door was the word Hermosa and the number 56.
+
+"Are we here?"
+
+The old man nodded. Will reached out and knocked on the door. There was no answer so he knocked again and this time the door flew open, nearly hitting them both.
+
+A man emerged, middle-aged, unkempt beard, eyes glazed over from alcohol or something stronger. He came out in a rage, but as soon as he saw the old man his expression softened. He was silent and hugged the old man tightly with one hand. In the other he held a cigarette extended. They embraced for nearly half a minute, and then the man's eyes opened and spotted Will there and grew hard. He released his father and went over to Will. He spoke in a rough voice, asking some question Will did not understand.
+
+"I brought him here. He said he needed to visit his son in San Bernardo, so I brought him."
+
+The man did not move or speak anymore. He seemed in shock that Will spoke English. Finally he said, "Estados Unidos?"
+
+"Si," Will answered, "I am from the United States."
+
+Immediately the man broke into a smile, his arms opened and he embraced Will much as he had the old man.
+
+"Estados Unidos!" he repeated, then with difficulty, "Welcome to Chile!"
+
+"Gracias," Will answered, pulling away from the man.
+
+The man turned and poked his head back into the house, shouting something Will did not know, except for Gringo and Estados Unidos. A few seconds later, more men emerged from the house, eyeing first the old man and then Will. They could not seem to put the two together. Will wanted to explain but didn't have the vocabulary. He hoped the old man would step in to explain, but he said nothing, strangely.
+
+The son turned to Will, put his arm around his shoulder and gestured for him to come inside. Will wanted to tell them he had to get back to the Hotel Riveria, but couldn't. He followed them inside.

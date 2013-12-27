@@ -155,7 +155,7 @@ NEXT DAY
 1500: Has breakfast, checks email. Gets a message from Constanza, to meet at The Clinic in one hour. When he is getting into the cab he sees the cripple man. For no seeming reason, decides to take him to San Bernardo to see his son on a bus.
 1500: Bus trip, Arrival
 1500: ShantyTown
-1500: Reunion with son and friends (piss in his cup, everybody laughs, including the old man)
+1500: Reunion with son and friends (one of the men pisses on Will, everybody laughs, including the old man)
 1500: Mugging and Stabbed
 1500: Walks in a Delirium to the Park
 1500: Witness to the BonFire, where they sacrifice a child
@@ -184,7 +184,24 @@ What happens now? 12-17-2013
 
 He gets in the cab, and as the cab stops he stops the driver. He walks over to the man and asks him what the sign says. Asks if he needs money? Gives him some change. Then he stops a passerby and asks what the sign says. "Must visit my son. San Bernardo." The man is missing leg so needs help walking. He has bad arthritis and his hands are curled up. Cannot see well. He asks someone else the best way to get to San Bernardo from here. Take the bus at the corner. Only couple thousand pesos. He walks the man to the nearest bus stop and tries to pay for a fare, but it only takes exact change. He remembers the Bip! card he bought at the Subway, gets it out. There he plans to pay for the man to get on the bus, but the man nearly collapses when he walks away. Will goes back and walks him to a seat on the crowded bus. Then the door pulls closed and the bus drives off. Will shouts but the driver does not listen. He sits with the old man on the route to San Bernardo.
 
+What happens now? 12-27-2013
+
+Will and the old man enter the shanty town and get lost. The sun is dropping and makes finding the old man's home hard. Will gets tired of holding the man and has to rest. They sit down. Will is feeling anxious, he needs to get back to the Hotel Riveria to take another Xanax. At last, by accident they find the house and enter. The man's son is there with a group of friends. They crowd around Will like a pack of dogs. The son is not happy to see the old man. He pushes him down in the corner. The idea I think is the old father is in town collecting money which the son takes from him.
+
 
 The Koons and their teenage grandsons came to Chile to help distribute wheelchairs to people who desperately needed them. They went from the most miserable shanty towns built on a garbage dump in San Bernardo, to Valparaiso to deliver the chairs.
 
 Elena Herrera met Sergio Enrique at the central market in Santiago. He was blind from diabetes and unable to walk. He slept outdoors and was growing steadily more ill. Though he was a complete stranger and she has 9 children that she is raising alone in a small shack in the middle of a shantytown of San Bernardo, she took him home and has been taking care of him for the past 10 years. Every day she would take him to the market on the make-shift cart she invented (visible on the left) where they sell whatever they can find to make their living. When they received the wheelchair, he was so happy that he literally wept for joy. Elena told us, “This wheelchair is like a Mercedes Benz for us after using that cart all this time!”
+
+Open Sewage
+Smell of Garbage
+Houses made of scraps, wood, tin, plastic sheets
+Crowded
+No Electricity, candlelight
+milk crates for furniture
+pads for bedding
+Dirt floors
+rust
+loose electric wires for makeshift light fixtures
+rickety steps
+sounds of sex, children crying, a violent argument
