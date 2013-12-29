@@ -188,10 +188,10 @@ What happens now? 12-27-2013
 
 Will and the old man enter the shanty town and get lost. The sun is dropping and makes finding the old man's home hard. Will gets tired of holding the man and has to rest. They sit down. Will is feeling anxious, he needs to get back to the Hotel Riveria to take another Xanax. At last, by accident they find the house and enter. The man's son is there with a group of friends. They crowd around Will like a pack of dogs. The son is not happy to see the old man. He pushes him down in the corner. The idea I think is the old father is in town collecting money which the son takes from him.
 
+What happens now? 12-28-2013
 
-The Koons and their teenage grandsons came to Chile to help distribute wheelchairs to people who desperately needed them. They went from the most miserable shanty towns built on a garbage dump in San Bernardo, to Valparaiso to deliver the chairs.
+Inside the shanty, the son puts his father into a wheelbarrow type contraption in the corner, which allows him to wheel around the place, although for the time being he seems content to just sit in the corner. The place is a dump, there is one ratty couch and some crates, a mattress in the corner, and a small room with a shit bucket. The place is lit with a mechanic's hanging light. Will tries to leave, but the man forces him to sit with them. He is telling a story, a violent story in Spanish. Will observes in horror as the story is told, it seems the story of a murder. His anxiety increases and he gets up to leave, but once again the man stops him. Then he gives him something to drink. It is a cup of piss. Will spits it out, but the man forces him to drink it. All of them are laughing, including the old man in the corner. He runs out.
 
-Elena Herrera met Sergio Enrique at the central market in Santiago. He was blind from diabetes and unable to walk. He slept outdoors and was growing steadily more ill. Though he was a complete stranger and she has 9 children that she is raising alone in a small shack in the middle of a shantytown of San Bernardo, she took him home and has been taking care of him for the past 10 years. Every day she would take him to the market on the make-shift cart she invented (visible on the left) where they sell whatever they can find to make their living. When they received the wheelchair, he was so happy that he literally wept for joy. Elena told us, “This wheelchair is like a Mercedes Benz for us after using that cart all this time!”
 
 Open Sewage
 Smell of Garbage

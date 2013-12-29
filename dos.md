@@ -1437,6 +1437,55 @@ Immediately the man broke into a smile, his arms opened and he embraced Will muc
 
 "Gracias," Will answered, pulling away from the man.
 
-The man turned and poked his head back into the house, shouting something Will did not know, except for Gringo and Estados Unidos. A few seconds later, more men emerged from the house, eyeing first the old man and then Will. They could not seem to put the two together. Will wanted to explain but didn't have the vocabulary. He hoped the old man would step in to explain, but he said nothing, strangely.
+The man turned and poked his head back into the house, shouting something Will did not know, except for Gringo and Estados Unidos. A few seconds later, more men emerged from the house, eyeing first the old man and then Will. They could not seem to put the two together. Will wanted to explain but didn't have the vocabulary. He hoped the old man would step in to explain, but he said nothing, strangely. The son turned to Will, put his arm around his shoulder and gestured for him to come inside. Will wanted to tell them he had to get back to the Hotel Riveria, but couldn't. They all went inside.
 
-The son turned to Will, put his arm around his shoulder and gestured for him to come inside. Will wanted to tell them he had to get back to the Hotel Riveria, but couldn't. He followed them inside.
+
+Nine
+
+Their home consisted of one room, subdivided into different areas by crates and boards. The place was illuminated from a mechanic's lamp which hung from the low particle board ceiling. The bulb inside was not diffuse so the light was very harsh in the middle, then dropped off sharply into shadows. There was the den, where they entered, a small bedroom area which was a mattress and egg crate nightstand, and what Will assumed was the bathroom, a small area with a five gallon bucket covered by a toilet seat. On the ground next to it was a pile of newspapers. 
+
+The son showed Will into the den and gestured for him to have a seat on the couch. Then he turned to his father and walked him over to a strange wheelbarrow like contraption in the corner. It was basically a wooden crate with the sides sheared down sat upon a frame with two bicycle wheels. There was a blanket which the old man tucked himself into. He looked contented and sat there in silence.
+
+It was cold inside, but not so bad once the others came inside and the door was closed. They took seats beside Will, some on the couch next to him, others on crates. They all ignored him for the most part and talked in Spanish with one another. On a small table in front of him game was on the radio. To appear at ease he pretended to listen to the game, although it was obvious he had no idea what was going on.
+
+The son approached Will and howled with laughter which did not seem to fit the mood, "Estados Unidos, welcome to Chile!"
+
+The others all took up the same forced laughter and leaned in closer to him. Will expected the old man to tell the story of how they took the trip from downtown but he was not paying attention, off in his own world in the corner. Just then in his ear one of the men whispered in a gravely voice, 
+
+"Macbook Pro. iPod Nano. iPhone color white."
+
+He turned to face the man and when he did the man stared at him with reddened, jaundiced eyes and repeated as if he were carrying on a conversation, "Windows Vista. Norton Security Antivirus. Facebook Members Profile."
+
+Will looked at the man in horror and felt his heartbeat rising. He composed himself, gave the man a small smile of recognition and rose from his seat. The act of standing up seemed somehow like a threatening move to the group, who were all sitting down. They too stood up and faced Will.
+
+"It was nice to meet you all, and I'm glad I could help your father get back here, sir, but its late and I really have to be going. Muchas Gracias."
+
+The son approached Will slowly with his hands held out in a gesture of friendship. He shook his hand and then turned to the group of others who took their seats again. Will started for the door, but the son put out his arm, blocking him. Once more he showed Will the couch seat.
+
+"Sir," Will began, "Thank you for your hospitality. Muchas Gracias." He clasped two hands together in a gesture of gratitude, "But I have to go now. I have to catch the bus."
+
+The son pointed outside and then broke into something Will took to be a plea or warning. He shook his head several times in the negative, as if saying it would be a bad idea to go out there now. The others all nodded in agreement that he should not leave. So once again Will took a seat on the couch.
+
+Some kind of smell, like beef stew, had been filling the room the entire time, and now it was very strong. The son walked over to a pot in the corner, resting on a small skillet underneath some embers. He lifted the pot lid and smoke bellowed from it. He wafted the smoke away with the lid, scooping a spoonful of stew out of the pot and tasting it. Then he reared his head back and howled.
+
+The others rose to their feet and rushed the stew pot. They fought and punched one another over bowls and spoons until at last the son erupted in an angry shout. That quieted them and from there they each took their turn having their bowl ladled with the stew. After the men took their seats again and began slurping down the stew, the son delicately prepared a cup and brought it over to his father, who had fallen asleep. He slapped his father gently and set the cup down beside him. The father awoke as if from a bad dream and when he saw the food he scooped it with both hands and drank it down, the juices spilling from the corners of his mouth.
+
+Will was hungry, but did not want their food, but did feel strange he was not offered anything, as if that might portend something sinister. He could not shake a feeling of ill-intent, although no one had yet done anything.
+
+But then the son brought Will over a steaming bowl of the soup. Will accepted it with both hands, but since it was hot he immediately set it down onto his lap.
+
+"Gracias, muchas gracias."
+
+When all the bowls were empty and even Will had drank his portion, the son rose and stood in the middle of the room, directly underneath the mechanic's lamp. He began speaking in a low voice, in Spanish, as if telling a story. The men around him had been nodding off, but looked up and fixed their attention on him. Will tried to understand from the hand gestured, inflections, pauses, what the story meant, but he was baffled. 
+
+The story began with a series of quiet sentences, told matter of fact. Then suddenly, the son stopped, made a huge gesture with both arms, as if opening two doors, and shouted something in anger. All the others laughed to themselves, nodding. The father in the corner was also listening. Then the son began speaking faster and faster, and became more and more excited, until one point he grew very quiet and all the others became quiet as well. It was captivating to listen to a story from only gestures and tone. There seemed many different stories he could be telling. The son slowly turned his left hand into a gun and acted like he was creeping down a hallway, looking around a corner. 
+
+Then, Will understood the story. The Spanish language melted away and he understood the story was about a man and a woman and another man. This was the man with the gun. The woman was his wife and the man she was with was her lover. He had discovered their affair and was going to confront them.
+
+The son raised the gun and in a wide motion shot all over the room wildly. Will imagined the husband taking revenge on the lover and his wife, leaving nobody in the place alive. It was a grim story, but then everyone else started laughing uncontrollably, even the son. Even his father in the corner. Clearly it had not been a story about infidelity. But what then? What was so funny about murder?
+
+Will joined in the laughter and when the others caught him laughing they stopped, acting as if his laughter was entirely inappropriate. Will was so confused he didn't know what to do. The son in particular had a grimace on his face. He walked away to the pot and brought back a mug and handed it to Will, motioning for him to drink.
+
+Will smelled the contents of the mug. It was urine. He set the mug down hard onto the floor and stood up. The others stood up too. The son approached Will in a series of quick steps and paused just as he reached him. He shouted, pointing to the mug, commanding Will to drink. The others joined in. Everyone was laughing without smiles on their faces. They were deadly serious. Will looked over to the corner, to find the old man, and the old man was there, laughing. Again the son shouted at Will, in a more angry voice than before. He picked up the mug and shoved it into Will's hand. 
+
+Will took the mug and stared at it for a few moments. He then tossed the mug in the son's face and darted in the direction of the door. He crashed into the door, breaking it into pieces and found himself outside in the alleyway. He scrambled to his feet and ran in the direction he knew, back towards the larger road. Behind him he heard the shouts from the son and others and pushed his legs harder and harder to go as fast as he could. There was a lot of noise and he saw people poking their heads outside, watching him run.
