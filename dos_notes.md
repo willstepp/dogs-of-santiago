@@ -16,7 +16,8 @@ The Dogs of Santiago Notes:
 * Don't hold anything back, ideas, emotions
 * An artist whose art is silence, "The plague of our time is the proliferation of mass communication, so he has created a new artistic movement - *shutthefuckupism*. The only relevant theme an artist needs to communicate to this new world order is silence, our innate need for silence and contemplation, at more than any other time in history. So he's taken a vow of silence. He's on all the social media sites, Facebook, Twitter, Instagram, SnapChat. You should follow him."
 * Ending: Interview with Government Agent (female), discussion with psychiatrist, hotel room, restaurant, park - the beautiful surroundings, lying under the treetops, sunlight through the leaves, dogs sleeping in the sun, a feeling of sublime gratitude at being alive, unspoken but unmistaken.
-* Sees someone he thinks is Ben, does not recognize him
+* Sees someone he thinks is Ben, does not recognize him.
+* Transparent words, sentences, paragraphs, scenes, chapters. Not so bad they stand out; Not so good they stand out.
 
 == OUTLINE
 Day One (25000):
@@ -186,13 +187,6 @@ He gets in the cab, and as the cab stops he stops the driver. He walks over to t
 
 What happens now? 12-27-2013
 
-Will and the old man enter the shanty town and get lost. The sun is dropping and makes finding the old man's home hard. Will gets tired of holding the man and has to rest. They sit down. Will is feeling anxious, he needs to get back to the Hotel Riveria to take another Xanax. At last, by accident they find the house and enter. The man's son is there with a group of friends. They crowd around Will like a pack of dogs. The son is not happy to see the old man. He pushes him down in the corner. The idea I think is the old father is in town collecting money which the son takes from him.
-
-What happens now? 12-28-2013
-
-Inside the shanty, the son puts his father into a wheelbarrow type contraption in the corner, which allows him to wheel around the place, although for the time being he seems content to just sit in the corner. The place is a dump, there is one ratty couch and some crates, a mattress in the corner, and a small room with a shit bucket. The place is lit with a mechanic's hanging light. Will tries to leave, but the man forces him to sit with them. He is telling a story, a violent story in Spanish. Will observes in horror as the story is told, it seems the story of a murder. His anxiety increases and he gets up to leave, but once again the man stops him. Then he gives him something to drink. It is a cup of piss. Will spits it out, but the man forces him to drink it. All of them are laughing, including the old man in the corner. He runs out.
-
-
 Open Sewage
 Smell of Garbage
 Houses made of scraps, wood, tin, plastic sheets
@@ -205,3 +199,13 @@ rust
 loose electric wires for makeshift light fixtures
 rickety steps
 sounds of sex, children crying, a violent argument
+
+Will and the old man enter the shanty town and get lost. The sun is dropping and makes finding the old man's home hard. Will gets tired of holding the man and has to rest. They sit down. Will is feeling anxious, he needs to get back to the Hotel Riveria to take another Xanax. At last, by accident they find the house and enter. The man's son is there with a group of friends. They crowd around Will like a pack of dogs. The son is not happy to see the old man. He pushes him down in the corner. The idea I think is the old father is in town collecting money which the son takes from him.
+
+What happens now? 12-28-2013
+
+Inside the shanty, the son puts his father into a wheelbarrow type contraption in the corner, which allows him to wheel around the place, although for the time being he seems content to just sit in the corner. The place is a dump, there is one ratty couch and some crates, a mattress in the corner, and a small room with a shit bucket. The place is lit with a mechanic's hanging light. Will tries to leave, but the man forces him to sit with them. He is telling a story, a violent story in Spanish. Will observes in horror as the story is told, it seems the story of a murder. His anxiety increases and he gets up to leave, but once again the man stops him. Then he gives him something to drink. It is a cup of piss. Will spits it out, but the man forces him to drink it. All of them are laughing, including the old man in the corner. He runs out.
+
+What happens now? 12-29-2013
+
+The son of the old man and his group of friends chase will through the Shantytown. Will falls through the steps and a sliver of wood goes into his leg. He steps in the open shit sewer. Then they overtake him, rob him of his wallet and cell phone, stabbing him in the gut as he tries to get away. The entire time they are laughing. They leave him and he comes upon the barrel of people before but they ignore him so he walks off.
