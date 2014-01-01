@@ -209,3 +209,8 @@ Inside the shanty, the son puts his father into a wheelbarrow type contraption i
 What happens now? 12-29-2013
 
 The son of the old man and his group of friends chase will through the Shantytown. Will falls through the steps and a sliver of wood goes into his leg. He steps in the open shit sewer. Then they overtake him, rob him of his wallet and cell phone, stabbing him in the gut as he tries to get away. The entire time they are laughing. They leave him and he comes upon the barrel of people before but they ignore him so he walks off.
+
+
+What happens now? 12-30-2013
+
+A delirium sets in, brought on by his injuries, the shock of the violence, exhaustion, and withdrawals from his sedatives. He begins to have visions of strange things. A fetus floating in a deep pool, which recoils and sinks when he touches it, a ceremonial fire, in a valley of mud. people are there, chanting and dancing, throwing their first born into the fire, everyone is there, bryan, the ponytailed man, he dances with constanza, until they try to thrown him in as well, then they do and the flames consume him. he watches himself burn and rise up over the city and then evaporates into nothingness.
