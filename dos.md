@@ -1550,10 +1550,84 @@ After the initial horror, Will felt pity for it, floating there, exposed to the 
 
 He sat down beside the pond again, his eyes fixed on the life form. Was it really there? He wondered. Where was he? Things he felt like he should be questioning rose to his mind but were immediately silenced by a small voice inside. He picked up the branch and traced a circle outside the fetus, as if demarcating a line not to cross. Then he sat there in silence, in contemplation of the thing.
 
-But then a thought occurred to him. He wondered if it were really alive? How was it breathing? He saw no air bubbles, no gills around its head. If he touched it lightly on the head, maybe it would show if it were alive, maybe move around, something. He put the thought out of his mind, but it kept creeping back in. "You are going to touch it," the small voice inside him whispered.
+But then a thought occurred to him. He wondered if it were really alive? How was it breathing? He saw no air bubbles, no gills around its head. If he touched it lightly on the head, maybe it would show if it were alive, maybe move around, something. He put the thought out of his mind, but it kept creeping back in. 
 
-"If I touch it, it will die," he said aloud.
+"You will touch it," the small voice inside him whispered.
 
-Will reached out to the middle of the pond and placed his hand gently around the head of the fetus, only for a second, then brought his hand away. The flesh was cold, like a frog, but it did not react to his touch.
+"If I touch it, it will die," he spoke.
 
-Then it sank, slowly, into the murky deep of the pond, and was gone forever. Will felt a deep shame and wept uncontrollably. He would do anything to take it back.
+He reached out to the middle of the pond and placed his hand gently around the head of the fetus, only for a second, then brought his hand away. The flesh was cold, like a frog, but it did not react to his touch.
+
+Then it sank into the murky deep of the pond, and was gone forever. He felt a deep shame and wept into his hands.
+
+Time passed and the air became colder and the light beyond the treeline brighter. It was almost growing. A gentle wind came through the woods, rustling the leaves, causing a few to fall onto his shoulders and into the pond. He sat in silence and without moving, for how long it was hard to tell.
+
+He felt a hand on his shoulder and turned to see Constanza standing there looking down at him. Immediately he rose to meet her face to face and they each hesitated before talking over one another.
+
+"What are you doing here? I thought you were not the person in the photo and I left the Juan Valdez and so much happened that I don't know where to start."
+
+"No," Constanza said, "it was me the whole time. I forgive you."
+
+She laughed. Will was embarrassed. Just then a leaf fell onto Constanza's shoulder and Will instinctively brushed it away, coming closer to her.
+
+"Maybe we can get coffee now, do you know any place we could go? There's so much I want to tell you," Will could not keep up with his thoughts. "When you know someone on the Internet it doesn't feel real sometimes, but now that you're here in front of me, I know it was you. I just know."
+
+"It's true," she said, "Let's go this way. I know a Juan Valdez this way a bit further down."
+
+"Good," Will said, "I will follow you."
+
+Constanza took Will by the hand and led him down another narrow winding path, in the direction of the pale light. He watched her walking from behind, her beautiful long hair whipping from side to side, her delicate shoulders exposed like in her picture. It was her. Will felt like a boy, filled with a hope and anticipation of the future he had not felt since he was a boy. The things they would experience together, the two of them, hand in hand. Everything seemed to be theirs, the entire world theirs. 
+
+Her hand was delicate and warmly stroked his fingers as they walked. She looked back with a shy, knowing smile. He smiled back at her. Some never find that one person who can share that smile. That smile that shows you are both in on the same joke. He had found her, though.
+
+As they approached another bend, her dress got caught on the briars and Will jumped down and removed them one by one. She thanked him and they continued, the light brighter and brighter.
+
+"Are we close?" Will said.
+
+The woods ended and before them was a construction site of some kind, the soil dug up in large muddy hills around an enormous pit. There was wood and debris. Constanza navigated around it like she had traveled this way before, and led them down a muddy makeshift set of steps. As they walked down into the pit he gazed across it and could not quite make out the other side. There was a fog. There were old cars sticking out of the ground, excavated, rusted. The impression was something like a garden of ancient automobiles. But there were people too, all swaying to some music he did not hear. People he recognized, Ben from the Fulbrights at California Cantina, the pony-tailed man from the riots in Plaza Italia, even the one-legged father from San Bernardo, all there, standing in front of an orb at the center of the pit, the source of the light he realized, spinning, shining, enormous in mass, not unlike the sun.
+
+One by one people walked into the orb, their flesh burning up instantly. He watched them each without a care for their personal well-being walk directly into the hot center.
+
+Constanza gripped his hand more tightly than before as they entered the plain of cars, surrounded by people dancing to the music. Then the music came to him and he felt the rhythm of it and soon he and Constanza were dancing together, embraced. He kissed her.
+
+"What is happening?" Will asked.
+
+"Do not be afraid," she reassured him, feathering his hair with her hand, "it will always be like this."
+
+"Always?"
+
+"Yes."
+
+"I am afraid."
+
+"There is nothing to be afraid of."
+
+Constanza pulled away and led him closer to the orb in the center of the pit. Their feet sloshed through mud an inch thick. He could barely make progress through it, but continued on, sensing how excited she was. He held her hand tighter. Finally she stopped and turned to him, very close they held one another.
+
+"It is time for you to go."
+
+"Why?" he asked.
+
+"It just is."
+
+"Oh," he replied, "but I don't want to leave you. We only just met."
+
+"We will never be apart. Forever."
+
+"You are a gift to me, a gift from God."
+
+He took one last look at her and let go. She let her gaze drop and did not meet his anymore. She was crying. He took a look at the others waiting for their turn. They seemed happy, anxious. Then he turned and faced the orb, shining into his eyes, blinding him. Even so, he continued into the center of it, not hesitating, not looking back. He heard the song and recognized its melody, lovely music. As he entered the orb his body began to decay in front of his eyes. The flesh melted away in front of his eyes. He saw it all, felt it all.
+
+The flames consumed him and he rose in the vapor over the pit, the valley, woods, park, San Bernardo, until he was over the city of Santiago, a spirit overlooking the city. He saw the lights of the buildings and the roads and in the distance saw the surrounding Andes, their snowcapped peaks protecting the boundaries of the city like an angel of Heaven.
+
+From up here he felt a objectless love, some infinite thing beyond whatever feelings he had experienced before. The feeling he felt melted into the skyline of Santiago. At once he wanted to see the faces of the people walking its streets and hiding inside its buildings and with a thought made it so. He saw them all, smiling, crying, laughing. They had beliefs and desires and guilts and pleasures. He watched them enjoy their pleasures and felt pity, watched their guilts and felt the same. How beautiful they were, the people of Santiago.
+
+Soaring over the night sky, he felt a freedom that expressed itself in flight. He could go anywhere, feel anything he wanted. Where was she? The girl he had fallen in love with. She was not here. He looked everywhere, scoured buildings and alleys, the metro and government buildings.
+
+The darkness of the night and the stars and the silhouette of the Andes against the old buildings of the city, the dogs running, sleeping, he saw all these things. Then he came down, returning to San Bernardo, the shantytown, the pedestrian streets, and found the body there. Laying there, prone to the weather, the freezing temperature, ice and cold. The grass around him covered in frost.
+
+As the sun rose he watched the man, the body of the man, hurt and alone. He dove into the world again, reckless and abandoning all of the things he had been shown. He returned.
+
+There he was, collapsed onto the park grounds, a bleeding wound on his leg, robbed of all his Earthly possessions. Why return to this sad state of existence? The man, suffering, slept a sleep with no rest. He thought about Constanza and the memory of their togetherness and how good that was, for however long it lasted. Their love, call it what it was. Why are we afraid of the word love. Why not break the bonds of this flesh and live according to our hearts. The man who suffers, there in the park in San Bernardo. The sun rising, light coming over the mountains, onto his wounds.
+
+"Heal his wounds," a voice sounded in he back of his mind, and it repeated itself, "Heal his wounds."

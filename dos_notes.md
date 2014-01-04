@@ -213,4 +213,8 @@ The son of the old man and his group of friends chase will through the Shantytow
 
 What happens now? 12-30-2013
 
-A delirium sets in, brought on by his injuries, the shock of the violence, exhaustion, and withdrawals from his sedatives. He begins to have visions of strange things. A fetus floating in a deep pool, which recoils and sinks when he touches it, a ceremonial fire, in a valley of mud. people are there, chanting and dancing, throwing their first born into the fire, everyone is there, bryan, the ponytailed man, he dances with constanza, until they try to thrown him in as well, then they do and the flames consume him. he watches himself burn and rise up over the city and then evaporates into nothingness.
+A delirium sets in, brought on by his injuries, the shock of the violence, exhaustion, and withdrawals from his sedatives. He begins to have visions of strange things. A fetus floating in a deep pool, which recoils and sinks when he touches it
+
+What happens now? 12-31-2013
+
+Constanza appears to him, a beautiful woman. They talk and then walk into the  valley of mud. people are there, chanting and dancing, throwing themselves into the hot sun at the center, everyone is there, ben, the ponytailed man, he dances with Constanza, until they try to thrown him in as well, then they do and the flames consume him. he watches his flesh burn and rise up over the city and then soars over the skyline, coming down onto a hurt man, the voice in him says, "Heal his wounds."
