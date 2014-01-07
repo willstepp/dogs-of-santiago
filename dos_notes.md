@@ -215,6 +215,22 @@ What happens now? 12-30-2013
 
 A delirium sets in, brought on by his injuries, the shock of the violence, exhaustion, and withdrawals from his sedatives. He begins to have visions of strange things. A fetus floating in a deep pool, which recoils and sinks when he touches it
 
-What happens now? 12-31-2013
+What happens now? 1-3-2013
 
 Constanza appears to him, a beautiful woman. They talk and then walk into the  valley of mud. people are there, chanting and dancing, throwing themselves into the hot sun at the center, everyone is there, ben, the ponytailed man, he dances with Constanza, until they try to thrown him in as well, then they do and the flames consume him. he watches his flesh burn and rise up over the city and then soars over the skyline, coming down onto a hurt man, the voice in him says, "Heal his wounds."
+
+What happens now? 1-6-2013
+
+As Will awakes from his dream, he finds a stray dog licking the wound on his leg clean. He fights the dog away and watches it. His mind is cloudy, he can tell he is having withdrawals and pain. There is a mist in the air, he can't tell where he is. The dog wanders off, and Will in his disoriented state follows it.
+
+
+
+What do I myself know? Almost nothing.
+
+Am I living an evil life? How can we live in this world, everything we do or touch has been tainted by corruption, exploitation, greed, violence, pollution, in some capacity. How do I live? Do I drop out of society, become a hermit? What am I supposed to do? I give to the poor, the majority of the time. But then what if someone asks me to give just after I've given something to someone else, and I think 'I just gave to that other man, if I give to this person, do I give to the next, until I am out of all my money? What then?' Am I wrong to think about those things? I have been judged. Someone out there decided I was not worthy of life. But the execution failed. That anger is still there. I can feel it.
+
+Why did you get out of the cab and escort that man to San Bernardo?
+
+Something evil and unclean had depressed my soul, was suffocating it. Maybe it was the drugs, my mood, the riots, sleeping with the prostitute. I felt a sadness not directly tied to any of those events. I felt like crying, but I couldn't cry. I felt something like a physical desire to perform an act of goodness with my own two hands, to do something decent for somebody else. I felt like doing a think like that would make those feelings of sadness inside me go away. That's as much as I can explain it. I'm not saying it right. I don't know how to say it right.
+
+An old man scrubbing vandalism off a church

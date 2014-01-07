@@ -1586,13 +1586,13 @@ As they approached another bend, her dress got caught on the briars and Will jum
 
 The woods ended and before them was a construction site of some kind, the soil dug up in large muddy hills around an enormous pit. There was wood and debris. Constanza navigated around it like she had traveled this way before, and led them down a muddy makeshift set of steps. As they walked down into the pit he gazed across it and could not quite make out the other side. There was a fog. There were old cars sticking out of the ground, excavated, rusted. The impression was something like a garden of ancient automobiles. But there were people too, all swaying to some music he did not hear. People he recognized, Ben from the Fulbrights at California Cantina, the pony-tailed man from the riots in Plaza Italia, even the one-legged father from San Bernardo, all there, standing in front of an orb at the center of the pit, the source of the light he realized, spinning, shining, enormous in mass, not unlike the sun.
 
-One by one people walked into the orb, their flesh burning up instantly. He watched them each without a care for their personal well-being walk directly into the hot center.
+One by one people walked into the incandescence, their flesh burning up instantly. He watched them each without a care for their personal well-being walk directly into the hot center.
 
 Constanza gripped his hand more tightly than before as they entered the plain of cars, surrounded by people dancing to the music. Then the music came to him and he felt the rhythm of it and soon he and Constanza were dancing together, embraced. He kissed her.
 
 "What is happening?" Will asked.
 
-"Do not be afraid," she reassured him, feathering his hair with her hand, "it will always be like this."
+"Do not be afraid," she reassured him, feathering his hair with her hand, "it has always been like this."
 
 "Always?"
 
@@ -1602,7 +1602,7 @@ Constanza gripped his hand more tightly than before as they entered the plain of
 
 "There is nothing to be afraid of."
 
-Constanza pulled away and led him closer to the orb in the center of the pit. Their feet sloshed through mud an inch thick. He could barely make progress through it, but continued on, sensing how excited she was. He held her hand tighter. Finally she stopped and turned to him, very close they held one another.
+Constanza pulled away and led him closer to the flames in the center of the pit. Their feet sloshed through mud an inch thick. He could barely make progress through it, but continued on, sensing how excited she was. He held her hand tighter. Finally she stopped and turned to him, very close they held one another.
 
 "It is time for you to go."
 
@@ -1610,13 +1610,13 @@ Constanza pulled away and led him closer to the orb in the center of the pit. Th
 
 "It just is."
 
-"Oh," he replied, "but I don't want to leave you. We only just met."
+"Oh," he replied, "but I don't want to leave. We only just met."
 
-"We will never be apart. Forever."
+"We will never be apart."
 
-"You are a gift to me, a gift from God."
+"You have been a gift to me," Will said, staring into her eyes, "a gift from God."
 
-He took one last look at her and let go. She let her gaze drop and did not meet his anymore. She was crying. He took a look at the others waiting for their turn. They seemed happy, anxious. Then he turned and faced the orb, shining into his eyes, blinding him. Even so, he continued into the center of it, not hesitating, not looking back. He heard the song and recognized its melody, lovely music. As he entered the orb his body began to decay in front of his eyes. The flesh melted away in front of his eyes. He saw it all, felt it all.
+He took one last look at her and let go. She let her gaze drop and did not meet his anymore. She was crying. He took a look at the others waiting for their turn. They seemed happy, anxious. Then he turned and faced the burning orb, shining into his eyes, blinding him. Even so, he continued into the center of it, not hesitating, not looking back. He heard the song and recognized its melody, lovely music. As he entered the orb his body began to burn in front of his eyes. The flesh of his hands and arms and torso and legs melted away in front of his eyes.
 
 The flames consumed him and he rose in the vapor over the pit, the valley, woods, park, San Bernardo, until he was over the city of Santiago, a spirit overlooking the city. He saw the lights of the buildings and the roads and in the distance saw the surrounding Andes, their snowcapped peaks protecting the boundaries of the city like an angel of Heaven.
 
@@ -1628,6 +1628,10 @@ The darkness of the night and the stars and the silhouette of the Andes against 
 
 As the sun rose he watched the man, the body of the man, hurt and alone. He dove into the world again, reckless and abandoning all of the things he had been shown. He returned.
 
-There he was, collapsed onto the park grounds, a bleeding wound on his leg, robbed of all his Earthly possessions. Why return to this sad state of existence? The man, suffering, slept a sleep with no rest. He thought about Constanza and the memory of their togetherness and how good that was, for however long it lasted. Their love, call it what it was. Why are we afraid of the word love. Why not break the bonds of this flesh and live according to our hearts. The man who suffers, there in the park in San Bernardo. The sun rising, light coming over the mountains, onto his wounds.
+There he was, collapsed onto the park grounds, a bleeding wound on his leg, robbed of all his Earthly possessions. Why return to this sad state of existence? The man, suffering, slept a sleep with no rest. He thought about Constanza and the memory of their togetherness and how good that was, for however long it lasted. Their love, call it what it was. Why are we afraid of the word love. Why not break the bonds of this flesh and live according to our hearts. The man who suffers, there in the park in San Bernardo. The sun rising, light coming over the mountains and shining onto his bleeding wounds.
 
-"Heal his wounds," a voice sounded in he back of his mind, and it repeated itself, "Heal his wounds."
+"Heal his wounds," a voice spoke to him from beyond the trees, where it was still dark, where the briars, limbs, and weeds obscured the path through.
+
+
+Ten
+
