@@ -219,7 +219,7 @@ What happens now? 1-3-2013
 
 Constanza appears to him, a beautiful woman. They talk and then walk into the  valley of mud. people are there, chanting and dancing, throwing themselves into the hot sun at the center, everyone is there, ben, the ponytailed man, he dances with Constanza, until they try to thrown him in as well, then they do and the flames consume him. he watches his flesh burn and rise up over the city and then soars over the skyline, coming down onto a hurt man, the voice in him says, "Heal his wounds."
 
-What happens now? 1-6-2013
+What happens now? 1-7-2013
 
 As Will awakes from his dream, he finds a stray dog licking the wound on his leg clean. He fights the dog away and watches it. His mind is cloudy, he can tell he is having withdrawals and pain. There is a mist in the air, he can't tell where he is. The dog wanders off, and Will in his disoriented state follows it.
 

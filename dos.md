@@ -1635,3 +1635,46 @@ There he was, collapsed onto the park grounds, a bleeding wound on his leg, robb
 
 Ten
 
+The morning was cold and foggy. You could not see ten feet. Will lay on the grass of the park, curled into himself for warmth, still asleep. There was a dog there, at his feet, licking blood from his exposed ankle. He awoke from his dream and immediately felt the hot tongue lapping against his skin. With his good foot he kicked the dog in the face with all his might. 
+
+"Get," Will said. He kicked again at the air, "Get, damn you!"
+
+That movement caused a shearing pain in his hurt leg. He cried out and fell back onto the grass, his breath visible. For a moment he felt like he was still dreaming and closed his eyes. Then he rose and looked around. Nothing but fog and dry grass and in the distance the sound of cars going by.
+
+Gently he pulled up his jeans around the wound. It was still fresh, with slivers of wood in there. He picked them out at which point the blood ran fresh. He sopped at the blood with the makeshift tourniquet from the night before, now wet from dew. "It hurts. Goddamn it hurts." Will whispered to himself. His ribs were also sore, and his face, from the beating. But that was not everything. He also felt the tightness in his neck and chest, the familiar shallow breaths, the buzzing arm, withdrawals.
+
+He tried to come up with a plan but his head was swimming with dizziness, foggy-headedness. After too much reasoning he felt weak and needed to close his eyes. Getting back to the Riviera was the thing to do, that much was obvious. There he could try to make contact with his brother, get him to wire him some money. Then, a doctor, something for the pain. Take his medication.
+
+That dog was still there, even after he had kicked it in the face. It sat just where the fog began to obscure things, so he looked like a dark mass sitting there, watching him. But it did not look predatory and Will was not afraid of it. A big dog for sure, black coat, a labrador mix of some kind, wearing one of those tattered vests he had seen on other strays. But he was not afraid of it. Nor it of him.
+
+"Which way, dog?" Will asked, his words slurred together. He didn't feel like he had the energy to articulate.
+
+The dog's ears perked up at the sound of his voice, but it did not move.
+
+"Towards the traffic you say? That seems like a good plan. People there at least. Not like here."
+
+He rose up onto his good knee and pushed himself up with both hands against the ground. He let the bad leg drag loose, careful not to put any weight on it. When he was up he saw the dog had risen too, was there at his feet, tail wagging in expectation.
+
+"I don't have any food. Go away."
+
+He started off towards the traffic, unsure how far it was, couldn't be more than half a mile though, from the sound of it. He made way slowly but surely and now that he was moving the fog seemed to lift some. He could see further and further with every step, it seemed. He was in the park, a flat meadow, between the entrance where there was a playground and a big hill to his left, with a few small utility sheds.
+
+The dog overtook him, circled back, and ran around his feet, at play. Will nearly tripped and cursed at the dog. He wished he had a stick to throw at it. But he didn't. So he tried to ignore it. At last it dawned on the dog that he was headed in a certain direction and from that point it began to lead him, as if guiding the way. Will was too delirious from his injuries and the withdrawals to much care. He kept going in that direction, following the sounds of traffic.
+
+By now he could see fifty yards in front of him. He found the sidewalk he had lost in the night and the road leading into town. Once on the sidewalk there were things to hold onto, to help brace him, things to lean on. He found a telephone pole and rested for a few moments, breathing hard and heavy. The dog continued on ahead but stopped when he realized Will had stopped.
+
+As he continued he began to follow the dog, unconsciously, and tried to keep pace with it, as if it were leading him somewhere. In general the dog was headed in the right direction, but in his state of mind he likely would have followed it right back off the path, into the woods. His mind drifted back to his nightmares and the violence of the night before. He felt lucky to be alive, but there was something oppressive about this place. It felt foreign in a way the rest of Santiago had not.
+
+He looked around and saw they were in town, at least a more populated area. There were storefronts and a little traffic, some people. As he followed the dog he felt their eyes linger on him, his bad leg. He probably looked like hell, like somebody you don't want to get involved with. But the dog seemed to know where to go so he just followed behind and did not make any attempt to communicate with the people on the street.
+
+The dog increased its pace when they turned a corner at the red light. Will wasn't even sure it knew he was back there anymore. But he kept following. Was it crazy? He was not sure. It seemed like a crazy thing to do, and yet if it were really crazy he wouldn't be doing it, surely. Those were the kinds of thoughts going through his foggy mind. It took all his strength to balance on his one good leg, not to let the bad leg come down too hard on the pavement, and keep pace with the dog. It kept his attention off his immediate pain. It helped.
+
+There was a small corner store, with a young kid spraying off the entryway. The dog saw the kid and ran underneath the spray of water. The boy laughed and gave it another good dousing. The dog stopped and shook it off. A man from inside yelled at the kid, who dropped the running hose and ran inside.
+
+Will stood back and watched all of this. He was afraid to get too close to anybody, afraid of what he wasn't sure. Instead he leaned against the side of a building one block, behind an exposed column and rested. He watched the dog lapped up the water which ran from the hose on the ground. Then it sat upright in the entrance to the store and gazed inside, patient but in expectation. Soon he saw a hand reach out and toss a few scraps of meat. The dog ate them up quickly and yelped with excitement. Then it continued walking down the street.
+
+He followed the dog a couple more blocks. It stopped at every crosswalk and did not go until other humans went, just like those in Providencia. As he walked the wound on his bad leg bothered him less and less. As long as he kept that black shape in his view and focused his attention on it, things were okay. He made sure it never saw him. Not that it was hard to fool a dog, but he tried to keep at least thirty or forty feet behind.
+
+A few more turns and they passed in front of a large church, Catholic, with yellow stone walls and an iron gate out front. An old priest was out there, with a bucket and sponge. Someone had spray-painted a swastika and a penis on the left side of the building and he was scrubbing it off with great effort. The dog ran inside the gate and greeted the old man, who stopped what he was doing and petted the animal, smiling. The dog grew more and more excited and ran over to a small wooden door behind the priest. The priest walked over to the door, opened it, and pulled out a bowl with some scraps. Eagerly the dog ate those up too, and then jumped onto the priest's frock, staining it with mud. The priest looked agitated and pushed the dog down, patting it on the head and closing the door, returning to his work. The dog once more went on his way down the street.
+
+They came to a row of large buildings with wide alleys in between and the dog disappeared down one of these alleys. It was only then Will seemed to come out of his momentary stupor and wonder to himself what was going on. He had no explanation, even for himself. He heard the echo of a bark and followed it into the alley.
