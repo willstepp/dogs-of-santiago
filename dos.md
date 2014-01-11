@@ -1717,6 +1717,13 @@ Then he began to dig in the cold ground. At first it was tough to break the laye
 
 Once finished, he reached underneath the dog with both arms and lowered it into the hole. He started tossing the loose soil from the pile back into the hole, covering the dog, when he noticed the headline on the front page of the newspaper he had used as a blanket for the dog. There was blood and dirt on it, and the words were Spanish, but he distinctly recognized the name The Clinic and below that a large photograph of rubble and debris, fire. People scrambling out of frame. Firefighters spraying it down.
 
-He dusted off the paper and took a closer look. The date on the paper was today, and through scanning the article text beside the photograph this had happened at 1400 on Mondata, yesterday. He tried the best he could to decipher the Spanish but it was difficult. He made out the words *terrorista* and in quotation marks, "Los Perros de Santiago." In a side panel he saw a series of head shots with names. The people listed were Americans, Europeans and there at the bottom of the list Will saw his own face and name in caption below, even his age. He stared at his own photo in the newspaper, associated with this apparent terrorist bombing at The Clinic yesterday. 
+He dusted off the paper and took a closer look. The date on the paper was today, and through scanning the article text beside the photograph this had happened at 1400 on Mondata, yesterday. He tried the best he could to decipher the Spanish but it was difficult. He made out the words *terrorista* and in quotation marks, "Los Perros de Santiago." 
 
-He remembered the day the photo was taken, a sunny and cold day at Thanksgiving, his family all gathered at his mother's place. His sister always had to get group shots of everybody together at all the family gatherings and this was no exception. She snapped this one while they were headed out there, everyone laughing. The sky was blue and clear and they had just eaten pumpkin pie.
+In a side panel he saw a series of head shots with names. The people listed were Americans and there at the bottom of the list Will saw his own face and name in caption below, even his age. He remembered the day that photo was taken, a sunny and cold day at Thanksgiving, his family all gathered at his mother's place. His sister always had to get group shots of everybody together at all the family gatherings and this was no exception. She snapped this one while they were headed out there, everyone laughing. The sky was blue and clear and their footsteps sloshed through the leaves from the maple trees throughout the back yard.
+
+
+III.
+
+Eleven
+
+
