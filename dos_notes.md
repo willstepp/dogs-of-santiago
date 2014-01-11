@@ -224,6 +224,12 @@ What happens now? 1-7-2013
 As Will awakes from his dream, he finds a stray dog licking the wound on his leg clean. He fights the dog away and watches it. His mind is cloudy, he can tell he is having withdrawals and pain. There is a mist in the air, he can't tell where he is. The dog wanders off, and Will in his disoriented state follows it.
 
 
+What happens now? 1-9-2013
+
+Will follows the dog into the alley and it comes out in a little park where some fellow dogs are sleeping. The dogs greets them and starts humping one of the females. They finish and the dog continues down the road once more, Will not too far behind. They come to a busy intersection. The dog walks into the street and Will sees a car coming but does not call out, does nothing at all, although there is time. The car hits the dog, an woman in her sixties gets out, looks at the dog, gets back in her car and drives off. Will goes over to the dog, which is still alive, but breathing heavily, whimpering, in pain. Will picks up a newspaper lying on the ground and uses it has a blanket with which to pick up the dog safely with both arms. Then he limps it back towards the park. The dog growls and nips at his hand but is soon too weak to fight back. Passersby eye Will with suspicion, avoiding walking too close to him and the dog. At last they get to the park. By now the sun has burned off the fog, he can see clearly up he hill to the shantytown where he came from the other night. Will is growing more and more foggy headed, his head hurts with a sharp pain, the wounded leg has gone numb, the wound broken out again and bleeding down into his shoe. He walks to the shed and grabs a small garden tool lying there. He rests the dog on the newspapers and starts digging a hole in which to bury the dog. He digs for a long time, deep and wide enough for the dog. No one comes around. When finished he picks up the dog, who has now died and places him into the hole. As he begins to shovel dirt into the grave he sees the headline on the front page of the newspaper, and a picture. An explosion at The Clinic, he makes out. A bomb terrorist. Dogs of Santiago. And there in a caption is a gallery of photos and names, all American. Will is one.
+
+
+
 
 What do I myself know? Almost nothing.
 
@@ -234,3 +240,14 @@ Why did you get out of the cab and escort that man to San Bernardo?
 Something evil and unclean had depressed my soul, was suffocating it. Maybe it was the drugs, my mood, the riots, sleeping with the prostitute. I felt a sadness not directly tied to any of those events. I felt like crying, but I couldn't cry. I felt something like a physical desire to perform an act of goodness with my own two hands, to do something decent for somebody else. I felt like doing a think like that would make those feelings of sadness inside me go away. That's as much as I can explain it. I'm not saying it right. I don't know how to say it right.
 
 An old man scrubbing vandalism off a church
+
+
+Do you reflect on your life?
+
+Who has time for that? I just work and exercise and eat at restaurants and buy gadgets and surf the internet and visit friend and family. I feel like I exist in a tunnel of activity. How did I get here? I don't know. I really don't. It all seems so random and meaningless, like billiard balls bouncing off one another.
+
+Reflect now.
+
+Now?
+
+We have time.
