@@ -1719,11 +1719,37 @@ Once finished, he reached underneath the dog with both arms and lowered it into 
 
 He dusted off the paper and took a closer look. The date on the paper was today, and through scanning the article text beside the photograph this had happened at 1400 on Mondata, yesterday. He tried the best he could to decipher the Spanish but it was difficult. He made out the words *terrorista* and in quotation marks, "Los Perros de Santiago." 
 
-In a side panel he saw a series of head shots with names. The people listed were Americans and there at the bottom of the list Will saw his own face and name in caption below, even his age. He remembered the day that photo was taken, a sunny and cold day at Thanksgiving, his family all gathered at his mother's place. His sister always had to get group shots of everybody together at all the family gatherings and this was no exception. She snapped this one while they were headed out there, everyone laughing. The sky was blue and clear and their footsteps sloshed through the leaves from the maple trees throughout the back yard.
+In a side panel he saw a series of head shots with names. The people listed were Americans and there at the bottom of the list Will saw his own face and name in caption below, even his age.
+
+He remembered the day that photo was taken, a sunny and cold day at Thanksgiving, his family all gathered at his mother's place. His sister always had to get group shots of everybody together at all the family gatherings and this was no exception. She snapped this one while they were headed out there, everyone laughing. The sky was blue and clear and their footsteps sloshed through the leaves from the maple trees throughout the back yard.
 
 
 III.
 
 Eleven
 
+The room he was in had sterile gray walls. It was lit from the open window on the other end, sunlight beaming through, illuminating dust in the quiet space. He sat alone at a plain desk with chairs on both sides. There was a pitcher of water on the table and a few glasses placed upside down. He poured a drink and looked at a generic painting of a springtime field with flowers. On the far wall was the folded wheelchair a male nurse had brought him in. "Where I am?" he had asked the nurse, "the United States Embassy, sir." the nurse replied, before checking his blood pressure and leaving the room. Any time before that Will could not remember. It was a blank. He felt a calmness he had not felt since arriving in Santiago. He had many  questions but at the moment felt content. He was comfortable in the silence and was startled when the door opened and a woman carrying a folder of files and a younger man entered the room. Someone outside pulled the door closed after they came inside.
 
+The woman took a seat on the other side of the table, facing Will. The man stood at the door, his hands behind his back in a official pose. The woman put down her papers and looked at him with compassion.
+
+"How are you feeling, Mr. S?"
+
+"Fine," he answered, trying to feel out her agenda, "I feel fine."
+
+"How is your wound? Are the stitches holding? The pain?"
+
+He had not even thought about the wound. He reached down and felt the stitches beneath the pants he wore, a kind of hospital garb, thin cloth material. There as a numbness in the place where his wound was, a comfortable feeling.
+
+"Thank you. I don't have any pain at the moment. The stitches are fine."
+
+"Good." The woman said. Her face was kind, her expression was one of understanding, "William, my name is Catalina Guiterrez. I am with the Chilean government, the division closest to your FBI. Do you understand me?"
+
+"I think so."
+
+"I must inform you that you are under no obligation to speak to me today, under International Law. Mr. Barraza here is a representative of the embassy, here to ensure your international rights are upheld. What I can tell you is that you are under no suspicion of criminal activity. We only wish to interview you, in order to gather evidence against the offending parties. I need your agreement before we continue this conversation. So if you do agree, will you sign this document here. If you have questions you can ask, or you may ask Mr. Barraza."
+
+She showed him a document, written in English. He glanced over to Mr. Barraza, who nodded at him. But he saw no reason not to talk, so he signed the document.
+
+"Before we start, Ms. Guiterrez, I'm sorry but I don't quite remember the circumstances that brought me here. Can you tell me how I came to be here? For my own peace of mind. And why am I being held? I am confused about everything that's happened."
+
+"Of course, Mr. S. I was not sure how much they had told you. From my records.
