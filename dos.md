@@ -1750,6 +1750,115 @@ He had not even thought about the wound. He reached down and felt the stitches b
 
 She showed him a document, written in English. He glanced over to Mr. Barraza, who nodded at him. But he saw no reason not to talk, so he signed the document.
 
-"Before we start, Ms. Guiterrez, I'm sorry but I don't quite remember the circumstances that brought me here. Can you tell me how I came to be here? For my own peace of mind. And why am I being held? I am confused about everything that's happened."
+"Before we start, I'm sorry but I don't quite remember the circumstances that brought me here. Can you tell me how I came to be here? For my own peace of mind. I remember being wheeled in this morning, and a I remember a nurse, but before that everything is a blank. And why am I being held? I am confused about everything that's happened."
 
-"Of course, Mr. S. I was not sure how much they had told you. From my records.
+"Of course, Mr. S. I can tell you what I know."
+
+She sifted through her papers and stopped on a particular document, reading.
+
+"A police officer, Mr. Ruiz found you in the park in San Bernardo on Friday morning. It says you were semi-conscious and lying next to a hole with a dead dog inside. There was no identification on your person, but you were quickly recognized as one of the suspected victims of the bombing at The Clinic the day before. You had evidence of a recent beating and a fresh wound on your right leg. Consequently you were carried to the St. Martin's Hospital, where you were treated. Does any of this sound familiar, so far?"
+
+"I remember the bombing. I mean, I remember that I saw the picture in the newspaper, my own picture. And I remember a dog, something about a dog."
+
+"Do you remember how you came to the park? Where did the dog come from?"
+
+"Vaguely," Will said, he closed his eyes, recounting the details which had brought him there, "I don't think I was in a good state of mind."
+
+"That's okay, the doctor's said it might take some time for you to remember. We will come back to that. Once you were treated at the hospital the doctor's told us you needed some rest, so we put you up in a hotel room downtown for the evening, and this morning some hospital staff transported you here to the embassy, where we retrieved your identification information and cob berated other strands of the story."
+
+"The story? I'm getting confused. What about the bombing? What about my picture in the paper."
+
+The woman put out her hand onto his. She squeezed warmly.
+
+"William, it's okay. We are going to explain everything, and maybe you can help us too. Everything is okay now. Do you need something to eat? I can have Mr. Barrazza bring in something."
+
+He was hungry.
+
+"Please."
+
+Mr. Barrazza nodded and went out. When he was gone Ms. Guitterrez leaned in closer to him.
+
+"I am truly sorry for the things you have gone through, Mr. S. I want you to know we notified your brother and mother this morning. They know you are safe. I spoke with your brother myself."
+
+"Thank you," he said, somewhat surprised, "did he know what was going on? I didn't tell anybody I was coming here."
+
+"He didn't, but the bombing made international news and we were afraid the news would get out before notifying next of kin."
+
+"Thanks. That's very kind," Will said. He was quiet for a moment, "What about those others, the other Americans I saw in the paper?"
+
+She looked back at the table and bit her lip. "Those were victims."
+
+Will understood. At that point Mr. Barrazza came back with a tray of doughnuts of all varieties. Will nodded to him and took a doughnut and ate. He felt better almost immediately.
+
+"Shall I get you some coffee, Mr. S?" Mr. Barrazza asked.
+
+"No thank you," Will said, "water is fine."
+
+"William, I would like to start from the beginning, if you think you can remember. The events that brought you to Chile in the first place," Catalina shifted through a few papers, "What can you tell me about Constanza?"
+
+She pushed out an OkCupid profile page, the profile she originally wrote him from. He recognized the photo of Ana Tijoux in the upper corner.
+
+"Oh my God, is Constanza okay? We were supposed to meet there. I had forgotten until just now. It was all happening then."
+
+"At this time we suspect Constanza is one of many fake profiles created by the Dogs of Santiago terrorist group to lure Americans to Chile, in order to be victims of the bombings. I am sorry to have to tell you this."
+
+He took in the information. Somehow he was not surpassed. It made sense. But a feeling of loneliness came over him.
+
+"Who was Constanza then?"
+
+"We don't know at this time. We have the email address the fake profiles were created from, but have not yet traced the origin. It takes time. What could help us is if you could explain the nature of your relationship."
+
+"I feel like a fool. We talked about so many personal things. What is it even a female?"
+
+"We don't know," Catalina looked sad, "William, it's okay. Internet impersonation happens all the time. You don't have anything to feel foolish about. It could have happened to anyone. Did Constanza contact you?"
+
+"Yes, she winked at me. I saw she was from Santiago, but her photograph was so pretty, I figured what the heck and sent her a quick message, something flirtatious. I don't remember what."
+
+"I am assuming you began to communicate through email after that."
+
+"Not email, we instant messaged, first through the site, then off the site through Skype. If you want you can have all our message transcripts. I'm pretty sure they're still on my computer. Oh shit, my stuff. I need to go get my things."
+
+"We retrieved your items from the Hotel Riviera yesterday. Please don't be worried. We brought them to your new hotel room. Your laptop is there."
+
+"Thank you," Will said, relieved, "To reiterate, I want to help in any way I can. Do you think our conversations could be useful to the investigation?"
+
+"Very likely, and thank you for your cooperation. Any detail could be helpful, its hard to say what that might be, a mention of a place, or an event, a name. What was the nature of your conversations?"
+
+"The usual type of getting to know somebody. At first, light and flirtatious, compliments and what's your favorite food, music, stuff like that. I don't think I was taking it very seriously at first, because she was so far away. Just having fun."
+
+"Did you discuss politics at all?"
+
+"Yes, like I was saying, at first it was just fun things. Then we had a few late night conversations that went on for hours, until morning even. Jesus, who was this person I was talking to? I feel ashamed. To think they were laughing at me, lying to my face."
+
+"What were the nature of your political discussions?"
+
+"Well, she seemed very liberal, a lot of Marxist ideas, which is okay, I have a pretty progressive perspective myself. We talked about the role of government as a force for good, what happens when governments become corrupt."
+
+"Revolution."
+
+"Yes, we discussed revolution. It was her idea though that revolution is a cyclic event, the revolutionaries overthrow the corrupt, but then once they are in power, they become the corrupt, in an endless cycle throughout history."
+
+"Did she seem bitter, or angry when discussing these topics? Did she mention anything specific to Chilean history or government?"
+
+"Yeah, I know she talked about Pinochet, which was the only one I had heard of."
+
+Catalina nodded, writing notes as they talked. A few times Will repeated what he said, clarified thoughts. As they talked it came back to him.
+
+"Did you discuss capitalism versus communism, things like that?"
+
+"Oh yes, a lot. In fact that was the centerpoint to most of our conversations around politics. She hated capitalism, kept referring to the coming downfall of capitalism, how it led to so much horror in the modern world. Things like that."
+
+"Were you in agreement with her politics? I'm trying to get at possible motivations."
+
+"To be honest I agreed with her most of the time. I thought she was a bit extreme in some cases, like I don't ever think violence is acceptable. I would bring up Gandhi and other forms of peaceful protest. She didn't seem into that. But we didn't disagree. I agreed with her that capitalism had fundamental problems, especially as practiced in the United States."
+
+"So, I think I'm getting a good understanding of your relationship. At what point did the subject of your coming to Chile occur? Was it her idea?"
+
+"No, well, not directly. Now that I think about it, she was pretty clever. She kept hinting how she had all this free time coming up, and how it would be fun if I came down, we could explore the city together. But she never outright asked me to come. But finally, I broached the subject and she was ecstatic and from that point she really wanted me to come at a certain time. It happened very quickly. I bought the ticket online and took off from work for a week, and left. Didn't tell anybody."
+
+"Do you usually travel this way? Impromptu?"
+
+"No, I never travel at all, especially out of the country. This was my first international flight."
+
+Will found it hard to maintain eye contact with Catalina. She looked at him with such pity and understanding, and spoke with such a tender, un-official tone.
+
