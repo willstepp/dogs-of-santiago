@@ -1856,9 +1856,134 @@ Catalina nodded, writing notes as they talked. A few times Will repeated what he
 
 "No, well, not directly. Now that I think about it, she was pretty clever. She kept hinting how she had all this free time coming up, and how it would be fun if I came down, we could explore the city together. But she never outright asked me to come. But finally, I broached the subject and she was ecstatic and from that point she really wanted me to come at a certain time. It happened very quickly. I bought the ticket online and took off from work for a week, and left. Didn't tell anybody."
 
-"Do you usually travel this way? Impromptu?"
+"Do you usually travel this way? Impromptu, no contact information."
 
-"No, I never travel at all, especially out of the country. This was my first international flight."
+"No, I never travel at all, especially out of the country. This was my first time out of the United States."
 
 Will found it hard to maintain eye contact with Catalina. She looked at him with such pity and understanding, and spoke with such a tender, un-official tone.
 
+"So you bought a ticket and flew down, the two of you were going to meet. Was your primary contact email at this time?"
+
+"Yes, instant messaging and email, but while traveling we agreed to talk through email."
+
+"Let's move forward and talk about after you arrived. Did you communicate through email when you arrived?"
+
+"Yes, I told her what hotel I had booked, the Riveria, and we made plans to meet at a coffee shop not too far away, in Providencia, the Juan Valdez."
+
+"Oh really?" She wrote more notes, "we had not heard this before."
+
+"Is that helpful?"
+
+"It was her decision to meet there?"
+
+"Yes."
+
+"Very helpful, in fact. Excuse me one moment. I should make a phone call."
+
+Catalina left the room and Will had another doughnut. He felt very relaxed, and guessed the orderly must have given him something this morning. Soon she returned and apologized for the interruption.
+
+"I promise this won't go on much further. I'd just like to get an overview of the events once you arrived in Santiago."
+
+She paused to read through her notes.
+
+"So, you arrived, you took a cab to the Hotel Riviera, you made email contact with Constanza. I am assuming you did not meet up that night. What happened?"
+
+"I took the metro to Providencia and found the Juan Valdez. I was early so I went inside and ordered something. I brought flowers. Anyway, she was late and I was growing anxious. I have problems with anxiety. I'm on medication for it actually."
+
+Catalina listened but did not react to his confession, so he continued.
+
+"So I went down to the barista and asked him if he had seen her, I had a picture of her, from the profile. And the barista laughed and told me it was a Chilean celebrity."
+
+"Ana Tijoux."
+
+"Right, he brought up a page on the Internet with her picture and I was upset, angry, confused, a whole lot of feelings at once. So I left the place and started walking. I do that sometimes. It helps my anxiety."
+
+"Where did you go? Did you attempt to contact her?"
+
+"No, at that time I had no way to contact her. I just left."
+
+"When was your next communication with Constanza?"
+
+"I met some Americans at the California Cantina, and someone there let me use his phone, so I emailed her an angry message, asking who she really was, all that. I was still pretty angry."
+
+Catalina was interested in learning about the Americans at the California Cantina, so Will told her about them, then about the walk to Plaza Italia with Ben, the mugging, and how he came to be involved in the protest by the Santiago Dogs. She was shocked to hear that and stopped writing notes.
+
+"You were there at the protest in Plaza Italia on the night of the thirteenth?"
+
+"Yeah, it was crazy."
+
+"And you say you didn't realize you were a part of the protest?"
+
+"No," Will made sure he explained himself very carefully. He realized how it sounded, "I was at the game, they set up the jumbotron across from the park and I was there. Then when the game ended there was a celebration and it got carried away and before I knew it I was surrounded by men in riot gear."
+
+"And this had nothing to do with Constanza. She didn't tell you about the protest, anything like that?"
+
+"No."
+
+"Odd."
+
+"I know how it sounds."
+
+Catalina became quiet and leaned back in her chair. Then she sifted through another folder and took out a photograph.
+
+"Do you recognize this person?"
+
+It was the man with the ponytail, the one he followed onto the side streets, out of danger.
+
+"I do. He was there. Who is he?"
+
+"Felipe Boetsch, the leader of the Santiago Dogs. One of them anyway. He is the one who ordered the bombing at The Clinic."
+
+"How do you know that? He told us. They took credit for the bombing. They released the names and photos of the victims. You among them, although they were wrong about you."
+
+There was a minute of silence while he took in everything she was telling him.
+
+"Will," she began, "let's skip to the next time you had contact with Constanza."
+
+"Sure," Will said, "It was the next morning. I was hungover pretty bad. I had a lot of drinks. She wrote me back and asked if I wanted to meet at the Clinic."
+
+"What was your reaction to that?"
+
+"Skeptical, but curious. She apologized and said she would explain everything. To please meet her there at 1:30 and not to be late."
+
+"But you did not go, why?"
+
+"Well," Will stopped, as if remembering something, "I wanted to go. I planned to go. I ate breakfast, got dressed up, I even hailed a cab."
+
+He paused. Catalina noticed his hesitation.
+
+"So you were on your way. You got ready and hailed a cab, but something happened. Did you change your mind? How did you end up in San Bernardo the following day? Is this connected?"
+
+"Yes," Will said, "I mean, I didn't change my mind. I had every intention of meeting her, but I felt like I needed to help this homeless man, this crippled old man outside the Riviera."
+
+"What do you mean?"
+
+"I had this sad feeling, a hopeless, darkness in my heart. All the things that had happened from the day before had left an evil feeling inside me, an unclean feeling. And when I saw that cripple there was a look on his face, a look like utter sorrow. I wanted to reach out to him, saw him from the cab as it was pulling away. I stopped the driver because I felt like if I helped that poor man it would cleanse those feelings my from heart. And so, that's what I did. I found out he wanted to visit his son in San Bernardo and I tried to pay his way but it was hopeless. He could not make it on his own. That became clear. But I couldn't back out of it. I knew I was going to be late to meet Constanza, but this felt more important than that. I don't know. Maybe I was still angry with her. But it wasn't that. It was so I could feel goodness again, feel that lightness in my heart again, like you feel when you are a kid."
+
+Catalina had stopped writing down and watched him. Her eyes welled up with tears as he spoke. She took his hand.
+
+"Will, don't you recognize that helping that crippled man saved your life?" she said, "It was a miracle that saved you."
+
+Will felt the warmth of her hand wrap around his. He did not pull away. He did think it was a bit strange this government woman acting like this. He saw the cross on her necklace.
+
+"I don't know," Will said, "It wasn't like that. I got beat up and injured and robbed, left for dead. What kind of miracle is that?"
+
+Catalina let go and smiled at him. She composed herself once more and picked up her pad and pen, writing it down.
+
+"So you missed your meeting with Constanza by traveling with this crippled man to San Bernardo. And it was this man's son who robbed you? Did you learn their names?"
+
+Will remembered the name on the door, but didn't want to bring them into it. He wanted to forget San Bernardo and everything that had come from it. He told Catalina the rest of the events in San Bernardo and she wrote them all down. When he was finished she closed up the folder of papers and put back on her glasses.
+
+"Will," she said, "Once again, on the behalf of Chile and its people, I want to apologize. Please do not think these terrorists represent us or our beliefs. We do not hate Americans. We love all people here."
+
+"Thank you."
+
+"We have put you up in a hotel downtown and have arranged temporary passport with the consulate to allow you to travel back to the United States. We also arranged for your flight. It leaves tomorrow at 15:30 and is nonstop to Atlanta."
+
+"Thank you very much. That is kind."
+
+"There will be follow-up questions at a later time, but there is no reason for you to remain in Chile. I'm sorry to have kept you for so long. We will arrange someone to take you back to your hotel. Do you have any questions for me?"
+
+"No," Will said, "Thank you for your kindness and I will cooperate to the fullest extent that I am able."
+
+They shook hands and then Catalina and Mr. Barraza left the room. It was only a few minutes later that a knock came on the door and a young woman said a car was waiting outside for him.

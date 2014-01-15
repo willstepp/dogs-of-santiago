@@ -253,3 +253,11 @@ Reflect now.
 Now?
 
 We have time.
+
+What do *I* know about life, about the world? What knowledge do I have that is not from outside, from things I was taught to believe, or instructed to memorize, or read in books, or saw on television and in the movies, or heard from somebody on the street corner. And the answer, I think, is, not much. But whatever it was that made me want to help that poor crippled man, that did not come from.
+
+After the meal he goes to the movies, watches Cars 2, the only thing playing, feels like something light.
+
+The government official thinks its a miracle
+The psychiatrist things its a coincidence
+Will does not analyze it
