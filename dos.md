@@ -1960,13 +1960,13 @@ He paused. Catalina noticed his hesitation.
 
 "I had this sad feeling, a hopeless, darkness in my heart. All the things that had happened from the day before had left an evil feeling inside me, an unclean feeling. And when I saw that cripple there was a look on his face, a look like utter sorrow. I wanted to reach out to him, saw him from the cab as it was pulling away. I stopped the driver because I felt like if I helped that poor man it would cleanse those feelings my from heart. And so, that's what I did. I found out he wanted to visit his son in San Bernardo and I tried to pay his way but it was hopeless. He could not make it on his own. That became clear. But I couldn't back out of it. I knew I was going to be late to meet Constanza, but this felt more important than that. I don't know. Maybe I was still angry with her. But it wasn't that. It was so I could feel goodness again, feel that lightness in my heart again, like you feel when you are a kid."
 
-Catalina had stopped writing down and watched him. Her eyes welled up with tears as he spoke. She took his hand.
+Catalina had stopped writing down and watched him. Her eyes welled up as he spoke. She took his hand.
 
-"Will, don't you recognize that helping that crippled man saved your life?" she said, "It was a miracle that saved you."
+"It was a miracle that saved you."
 
-Will felt the warmth of her hand wrap around his. He did not pull away. He did think it was a bit strange this government woman acting like this. He saw the cross on her necklace.
+Will felt the warmth of her hand wrap around his. He did not pull away. He did think it was a bit strange this government woman acting like this. He saw the cross on her necklace and understood.
 
-"I don't know," Will said, "It wasn't like that. I got beat up and injured and robbed, left for dead. What kind of miracle is that?"
+"I don't know," Will said, "It wasn't like that. I got beat up and injured and robbed, left for dead. Some miracle."
 
 Catalina let go and smiled at him. She composed herself once more and picked up her pad and pen, writing it down.
 
