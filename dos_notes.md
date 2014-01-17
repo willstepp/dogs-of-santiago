@@ -261,3 +261,11 @@ After the meal he goes to the movies, watches Cars 2, the only thing playing, fe
 The government official thinks its a miracle
 The psychiatrist things its a coincidence
 Will does not analyze it
+
+What happens now? 1-5-2014
+
+Will returns to the hotel, goes for a swim in the pool upstairs, then takes a shower. He receives a phone call from a psychiatrist who wants to meet him in the lobby. Will goes down to meet him. The psychiatrist suggests they go to  the restaurant next door. They eat Peruvian food, talk about what Will is feeling.
+
+Afterwards Will goes to a theater to watch a movie, a kids movie. Then to bed.
+
+In the morning he has breakfast and waits for the cab to take him to the airport. Along the way they stop at Park Bustamante and Will has a sandwich, admires the park the people and the dogs.

@@ -1166,7 +1166,7 @@ You could not see outside the windows at all, but there was a dim light radiatin
 
 "What is it like, to be a father?" Will asked him, finally.
 
-"Wonderful."
+"It's wonderful."
 
 
 II.
@@ -1566,7 +1566,7 @@ He felt a hand on his shoulder and turned to see Constanza standing there lookin
 
 "What are you doing here? I thought you were not the person in the photo and I left the Juan Valdez and so much happened that I don't know where to start."
 
-"No," Constanza said, "it was me the whole time. I forgive you."
+Constanza said, "I was here the whole time, waiting for you."
 
 She laughed. Will was embarrassed. Just then a leaf fell onto Constanza's shoulder and Will instinctively brushed it away, coming closer to her.
 
@@ -1987,3 +1987,107 @@ Will remembered the name on the door, but didn't want to bring them into it. He 
 "No," Will said, "Thank you for your kindness and I will cooperate to the fullest extent that I am able."
 
 They shook hands and then Catalina and Mr. Barraza left the room. It was only a few minutes later that a knock came on the door and a young woman said a car was waiting outside for him.
+
+Twelve
+
+By the time they arrived at the hotel it was raining. A steady pouring, a grey overcast, cold. The car pulled up to the entrance and a hotel valet opened the backseat door. The driver gave him a nod and drove off. Another valet opened the door to the hotel, which entered into a cavernous space, with marble columns and high chandeliers. The light inside was golden, muted, and gave everything a warm glow. Will approached the front desk, where several clerks waited for patrons. A pretty lady greeted him with a wave.
+
+"Welcome back, Mr. S. They told me you would be arriving and that you may not remember your room number, or have your keys. I made backups for you. So here they are."
+
+Impressed and amazed, he took the keycards and told her thank you. She nodded and went back to work.
+
+Towards the entrance was a Starbucks and in the middle of the lobby was a cozy reading area, with couches and tables. There were many people there, businessmen, families, couples. Will took it all in and noticed the concierge's desk on the other side, next to a large fountain. He went over.
+
+"Excuse me," Will asked the concierge, "do you speak English?"
+
+"And Spanish, French, German, and Russian. How may I assist you on this glorious rainy day? Do you need recommendations for dinner, perhaps?"
+
+"No, thank you," Will replied, pleased with the man's enthusiasm for his work, "I was wondering if you had a pool here."
+
+"No, we do not have a pool. We have four of them."
+
+The concierge smiled and then leaned over to inspect the bandages wrapped around his leg.
+
+"I will tell you the best one for you, sir. On the roof we have an olympic-sized pool, salt water, heated this time of year. Indoors of course, with a skylight. Will do wonders for your injuries, to soak them."
+
+"Thank you very much. That sounds perfect. On the roof you say. So just get in the elevator..."
+
+"Correct. All the way up. Thirty seventh floor. Look for attractive ladies in bathing suits."
+
+Will laughed, "Thank you. What else do people do around here, on rainy days?"
+
+"Well, let me see," the concierge thought, "there is the movie theater across the street. That's very popular on days like this. American films, subtitled. In the evening there are some dance clubs. I can give you directions if you like."
+
+"Where is the movie theater, do I take a taxi?"
+
+"No sir, its just right across the street, in the downstairs plaza market."
+
+"Thank you."
+
+"Have a wonderful stay, sir." the concierge nodded, then walked to the next person at the desk.
+
+He took the elevator to his room on the ninth floor. It was a cozy space, not very large, but nice, with a window that overlooked the street. The rain pattered against it. On the bed were his belongings, brought from the Riveria. His computer lay on the desk in the corner. There were some medications on the counter, with a note from the doctor written out. It told him to take one pill for the pain every few hours, if necessary.
+
+He took one and found his shorts in the duffle. He stripped out of his jeans and sweatshirt and put on the shorts and a t-shirt. The clothes had been cleaned. They no longer smelled of smoke and all the evening smells from the first night. He found a large white towel in a closet and put on his flip flops.
+
+The pool area was empty except for a young couple in the hot tub. The pool itself was empty and shimmered bright blue against the overcast light from outside. The rain beat against the skylight in a steady patter. He tossed the towel on a plastic lounge chair and dipped his toe in the pool. It was warm. He walked to the steps on the shallow end and slowly entered, ensuring the salt water would not sting his wounds, but it didn't. It felt nice, the warm water acted like a relaxant, or perhaps it was the pain medication taking effect, but he then floated upright in the pool, feeling a calmness he had not felt for a long time. He listened to the gentle sloshes of the water against his body and the patter of the rain and nearly fell asleep. Soon he heard some others enter the pool and looked up. It was the couple from the hot tub.
+
+"Hola," Will said.
+
+"Hola," the young man answered, "are you American?"
+
+"Si, Estados Unidos."
+
+They laughed.
+
+"I like your beard," his girlfriend said.
+
+"Thank you."
+
+Will floated off again, listening to their intimate whispers. They laughed, probably about him, but he didn't care. He dipped his head under the water and brushed his hands through his hair.
+
+He got out of the pool and napped in the lounge chair for a bit. A family arrived and the kids jumped into the pool and the father shouted at them. At some point he fell asleep, but did not dream and when he awoke it felt like it had only been a moment, but the pool area was now empty. The pool still. Outside the sky was dark, but the rain still beat on the glass overhead.
+
+He went back to his room and checked the time, wrote a few emails. One to his brother, one to his mother, telling them he would return the next day, and would be in touch. Telling them he loved them. Afterwards he took a shower and washed off the salt. There were supplies to redress his wounds, so he wrapped up in clean bandages.
+
+From there he went downstairs and across the street, into the movie theater, holding his sweater over his head to not get his hair wet. There as a lot of traffic, dense, and he weaved through. At the theater there were a few Hollywood blockbusters and some kids movies. In his current state of mind he didn't feel like anything heavy so got a ticket for Cars 2, bought a hot dog and coke, and went inside. He was in a good mood and enjoyed the movie more than he thought he would, so much so that he wondered if it was just the medication. The only others in the theater were a few mothers and their kids. Will laughed when the children laughed.
+
+After the movie he went back to his room and lay on the bed, not really thinking about anything, just resting, when the phone rang.
+
+"Hello?"
+
+"Mr. S, is that you?" a voice came on the other end, a man's voice.
+
+"Yes it is. May I ask who is calling?"
+
+The man spoke very quickly and Will had a hard time understanding him, although he spoke English.
+
+"Catalina, Ms. Guiterrez asked me to come. My name is Dr. Hernandez. She was thinking we could talk about a few things, if you were feeling up to it. I'm in the lobby of the hotel now, if you'd like to come down?"
+
+Will found himself uneasy, and a little cautious, but agreed to come meet him at least.
+
+"You say Ms. Guiterrez sent you?"
+
+"That's right, just to talk. Off the record. Please don't be alarmed."
+
+"Well, give me a few minutes. I'll meet you in front of the concierge's desk."
+
+He went down to the lobby, spied out the concierge's desk from behind one of the pillars, and saw a short, older man with a long gray beard and a bald head, wearing an old-fashioned trench coat, dotted with rain. In his hand he held a folded umbrella and was checking something on his phone. He seemed genuine at least.
+
+Will went over to the man and spoke before he was seen.
+
+"Doctor Hernandez? Is that you?"
+
+ The man turned and looked surprised to see him.
+
+"Ah, I did not expect you to make it down so quickly," He shook Will's hand and gazed down to his leg, "Tell me, how is your leg?"
+
+"It's fine. I went for a swim in the salt water pool earlier. Then redressed the wound. But its fine."
+
+"Good, that's good. My old friend, Doctor Milla, is the one who treated you. He does good work. I am glad to hear it. Tell me, have you had dinner yet, by any chance? Because I have not, and I was thinking we could perhaps go talk over some good Peruvian food, what do you say?"
+
+Will was not given much opportunity to speak or answer even. He began to agree to the idea, when the doctor spoke up again.
+
+"It's not far, come, they have decent prices, although nothing this far into the city has great prices, all inflated from the tourists. But excellent food. Have you ever tried Peruvian?"
+
+"No," Will said. By that point they were both walking out the side entrance. At which point the doctor opened his umbrella and walked them both down the street, ensuring Will was covered from the rain.
