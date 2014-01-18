@@ -2126,8 +2126,64 @@ The doctor pondered for a moment before replying.
 
 "Sometimes I wish I lived in the old days. Everything now is so connected. How can I live a righteous life in society when everything I come in contact with has been tainted at some point by the corruption, the exploitation, greed, violence, pollution? How do I live in this world? Is the answer to drop out of society? To live as a hermit in order to save my own soul? Somehow that does not feel right. There is something selfish about that. So is the answer to live in society but doing good. Do I give to the poor? If so, at what point do I stop giving? At what point do I decide, I will help you over here and I will help you over there, but you I can't help because I've already helped those others. Do I keep just enough to keep me alive? Is that what life is?"
 
-"I don't have the answers to these questions," the doctor said, "On the one hand I can tell you from experience that these are good questions to ask, but it can easily paralyze you into inaction or frustration or slowly it can turn into self-righteousness, which will lead to the hatred of others, possibly violence. I have seen it happen."
-
 "What then? Do I zone out like so many of my friends, become numb to the problems of life and go through life like an automaton, doing just what is expected of me, going to work each morning, getting married, having children, saving up for retirement, not breaking any laws."
 
+"For a long time I've wondered what do I know about life, myself? What do I know that is not a product of my culture or my parent's belief systems, traditions, ethics? What do I know that is not an idea borrowed from a book I read, or a film, or a piece of music? What do *I* know with my own to eyes and my own two hands, about life? I can think of very few things, a handful of things. I wish I could break away from those influences and see the world naked and cultivate my knowledge from a raw state. Because who has the truth. Everybody it seems like. This book over here has all the answers, some say. No, listen to me another says, and I will show you the way. Nobody ever admits they don't know. You never see a book with a title, "I don't know what the fuck I'm doing here, and so can you!"
+
+"Do you feel like you want to escape life?"
+
+"I want reality and pure experience. I feel like I can't get away from how others want me to live, from expectations. I want a connection with someone that is real."
+
 "I read one time that evolution has given every living thing some kind of advantage in the system, something specific in their physical makeup. But for human beings, we don't have anything in our physical makeup that is advantageous. We are something like an amorphous shape, but what we do have is our mind. That is what we were given by evolution or God or whatever you believe put us here. If that is true, then it is what we create with our minds is the providence of our being here, how can technology be wrong, inherently? There are so many people who want to see us return back to a simpler time. I feel like that is wrong. I think we should question what we do with our technology, but to call technology itself a sin is to deny that which God or whatever has given us."
+
+"Will, I don't have the answers to these questions. Nobody really does," the doctor said, "There are experts and gurus and prophets and philosophers, but I think at the end of the day your conscience is the only voice worth listening to. On the one hand I can tell you from experience that these are good questions to ask, but it can easily paralyze you into inaction or frustration or slowly it can turn into self-righteousness, which will lead to the hatred of others, possibly violence. I have seen it happen."
+
+Will was quiet, but continued eating. The doctor ordered another Pisco Sour.
+
+"Let us bring the conversation around to something more practical. I would like to discuss your history with anxiety and depression, if you don't mind. You mention anxiety in your discussions with Catalina and there were traces of benzodiazines and sleeping pills from the bloodwork that was run while you were in the hospital."
+
+"I have a history of anxiety. A couple years ago I had a kind of breakdown, although I wasn't sure what it was at the time, I thought maybe I was dying. I went to the emergency room. I couldn't sleep. My heart raced. After they determined I wasn't dying they sent me to a psychiatrist who put me on Lexapro and Xanax and Ambien. And it worked, but I didn't feel like a person anymore. I felt disconnected from reality. I became obsessed with my condition and withdrew."
+
+"Are you still on this medication?"
+
+"I take Xanax as needed and Ambien as needed, but I am weaning myself off. In fact, I had not used these drugs for about a month until I came down here. Then I needed them. I felt the old feelings and I couldn't handle it."
+
+"Why did you stop taking the Lexapro?"
+
+"Because, I don't want to live my life through the filter of a drug. I want my life to be a real life. I became dependent on Xanax. The doctor had me taking three pills a day, for almost a year, and one day I realized the drug wasn't calming me, it was making me anxious. I found about about tolerance and how you can start to withdrawal from Xanax hours after you take it. So I had to stop all of them. I felt like they were poisoning me. The psychiatrist I was seeing did not agree with me, so I left him and weaned off the Lexapro on my own. I studied alternative forms of treatment, natural herbs, meditation, talk treatment."
+
+"Were those effective for you?"
+
+"A little, the talking more than anything else."
+
+"Would you say you are okay now?"
+
+"Not really, not after this whole experience. There were moments I can't comprehend really, what was going on. I feel I still suffer from depression, anxiety, and perhaps some self-destructive behavior. I don't know what to call it. But I know I want off those pills. I don't want to be on pills. I want my life to be my own."
+
+"I would like to say a few words about the medications, because I sense your hostility and even sense a feeling of betrayal on the part of your psychiatrist."
+
+"A bit, yes, I think you're right."
+
+"What you have to understand is that medicine of today did not just spring out of the ground, it is something which has evolved, from the primitive superstitions, to the traditional remedies, to science-based discoveries, it is all connected, in a line through history. And, for a moment, I want you to ask yourself the question, where does medicine as an idea come from? Why do human beings perform medicine and the animals do not? In that regard, why do we practice medicine, from a social perspective?"
+
+"I don't know. I'm not sure I understand your question."
+
+"Perhaps I'm not explaining myself well, but what I want you to recognize is that the origin of medicine is empathy for our fellow man. It grew from seeing others suffer from maladies and injuries and feeling a need to help that one who suffered. It is an act of love. The sufferer was not the one trying to cure himself. No, it was his neighbor. So, for that reason I would not toss out medicine just like that."
+
+"But the chemicals they use, they can be harmful. You don't know what they might do to your body or mind. It is better to use natural medication if possible."
+
+"I hate to break this to you, Will but there are many, many poisons in nature which will not hesitate to kill you in a heartbeat. That is no argument for nature-based medicine. Here is the thing. We do the best we can. We act on the knowledge we have, imperfect as that is. What we thought we knew hundreds of years ago, we later realized was ineffective, or there was perhaps a better way. It is a technology. It improves. Now, that is not to say nature-based medicine is backwards or ineffective. Most definitely not. I sometimes prescribe holistic treatments. Because some do work. However, some do not. The key here is to remain open and have humility. And to resist dogma, on both sides. The medicines you say you don't want to take have helped millions of people make it through the day. It is not perfect. There are issues and side effects, and sometimes there are serious complications. And there are large businesses involved in pharmaceuticals who let the lust for money get in the way of progress, become corrupt. Those things are all real, Will, and you should be conscious of them. But what I don't want to see is you rage blindly against the wrong thing."
+
+"Do not lose hope, Will. Have faith in people. Look for the best in them, love them, and do what you can to help them in their journey through this life, and receive their help with gratitude. Do not be taken in by those who live by anger, by the self-righteous, by the false prophets. There will always be the poor, the injured, and the abused. Yet do not fall into despair, or place the weight of this upon your shoulders. Listen to your conscious above all outside influence, above any book or guru. Be humble and try to take no more from the Earth than you require. Yet do enjoy the gifts of this world. A poet said there is nothing upon this poor, poor Earth but gifts. Believe in that, my friend. It is all a gift, the good and the evil. It is all a gift."
+
+Will looked at the table and contemplated the things the doctor had said. He did not reply. He felt it would be rude to do so. Instead he let the words linger in the space between them. He finished his dinner. The doctor finished his plate and called the waiter, speaking to him in Spanish. A few minutes later the waiter brought out two plates, dessert, and set it down in front of them. A moist white cake covered with a deep red glaze.
+
+"Tres Leches, the best in Santiago. You have to try at least a bite, my friend."
+
+"It looks good," Will said. He forked a piece into his mouth and was surprised that it was chilled, a sweet cream soaked through the cake, and the glaze was a tart raspberry.
+
+"This is the best dessert I've ever had," Will said.
+
+The doctor laughed and they both finished the dessert in silence. Afterwards the doctor paid the bill and walked with Will back to the hotel. By then the rain had stopped and the sidewalk glistened with the lights from the storefronts and bars. It was cold and the traffic was thin. The stars were visible in the night sky.
+
+They said goodbye at the doors of the hotel. The doctor's handshake was firm. Will watched him walk down the street and hail a cab and then he was gone. The doorman opened the doors of the hotel and he went inside.
