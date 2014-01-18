@@ -1960,13 +1960,7 @@ He paused. Catalina noticed his hesitation.
 
 "I had this sad feeling, a hopeless, darkness in my heart. All the things that had happened from the day before had left an evil feeling inside me, an unclean feeling. And when I saw that cripple there was a look on his face, a look like utter sorrow. I wanted to reach out to him, saw him from the cab as it was pulling away. I stopped the driver because I felt like if I helped that poor man it would cleanse those feelings my from heart. And so, that's what I did. I found out he wanted to visit his son in San Bernardo and I tried to pay his way but it was hopeless. He could not make it on his own. That became clear. But I couldn't back out of it. I knew I was going to be late to meet Constanza, but this felt more important than that. I don't know. Maybe I was still angry with her. But it wasn't that. It was so I could feel goodness again, feel that lightness in my heart again, like you feel when you are a kid."
 
-Catalina had stopped writing down and watched him. Her eyes welled up as he spoke. She took his hand.
-
-"It was a miracle that saved you."
-
-Will felt the warmth of her hand wrap around his. He did not pull away. He did think it was a bit strange this government woman acting like this. He saw the cross on her necklace and understood.
-
-"I don't know," Will said, "It wasn't like that. I got beat up and injured and robbed, left for dead. Some miracle."
+Catalina had stopped writing down and watched him. Her eyes welled up as he spoke. She took his hand. Will felt the warmth of her hand wrap around his. He did not pull away. He did think it was a bit strange a government worker acting like this. He saw the cross on her necklace and understood.
 
 Catalina let go and smiled at him. She composed herself once more and picked up her pad and pen, writing it down.
 
@@ -2078,16 +2072,62 @@ Will went over to the man and spoke before he was seen.
 
 "Doctor Hernandez? Is that you?"
 
- The man turned and looked surprised to see him.
+The man turned and looked surprised to see him.
 
 "Ah, I did not expect you to make it down so quickly," He shook Will's hand and gazed down to his leg, "Tell me, how is your leg?"
 
 "It's fine. I went for a swim in the salt water pool earlier. Then redressed the wound. But its fine."
 
-"Good, that's good. My old friend, Doctor Milla, is the one who treated you. He does good work. I am glad to hear it. Tell me, have you had dinner yet, by any chance? Because I have not, and I was thinking we could perhaps go talk over some good Peruvian food, what do you say?"
+"Good, that's good. My old friend, Doctor Milla, is the one who treated you. He does good work. I am glad to hear it. Tell me, have you had dinner by any chance? Because I have not, and I was thinking we could perhaps go talk over some good Peruvian food, what do you say?"
 
 Will was not given much opportunity to speak or answer even. He began to agree to the idea, when the doctor spoke up again.
 
 "It's not far, come, they have decent prices, although nothing this far into the city has great prices, all inflated from the tourists. But excellent food. Have you ever tried Peruvian?"
 
 "No," Will said. By that point they were both walking out the side entrance. At which point the doctor opened his umbrella and walked them both down the street, ensuring Will was covered from the rain.
+
+A few blocks down was a modern looking restaurant called Fresca written in colorful letters. They entered, were seated and brought menus. The place was very busy tonight. Will looked around at the patrons. A waiter came up and asked something in Spanish. Doctor Hernandez answered him and then addressed Will.
+
+"What are you drinking tonight, Mr. S? The Pisco Sour is wonderful here."
+
+"No alcohol for me. A Coke is fine. Do they have Coke?"
+
+Doctor Hernandez ordered in Spanish and the waiter departed. The doctor pulled the napkin from the table and placed it on his shirt. His manners seemed from a different time. The way he spoke seemed from a different time. Will liked him.
+
+A few minutes later the waiter brought a Pisco Sour for the doctor, and a Coke for Will. He also set down a basket of rolls and a bowl of pico de gallo and butter. They ordered. Fortunately the menu had pictures, and Will picked out a simple beef and vegetable stir fry with rice. It also came with a side of fries. The doctor ordered for them both and afterwards he looked at Will with kind, curious eyes.
+
+"So Will," the doctor began, "Let me lay things out for you, because I'm sure you are confused by this point."
+
+Will nodded, then reached over and took a roll from the basket, spreading a little pico on it. The doctor did the same.
+
+"They sent me to talk to you this evening because you have been through some very traumatic events over the last few days. I am a psychiatrist, employed by Corfo. I also have my own practice in Los Condes. I received my doctorate in Psychiatry from Yale in 1978. Also, that is where I learned to speak English. Now, Ms. Guiterrez gave me a file which detailed your events of the last couple of days and I have read it over and I would like to know what you are feeling, what are your thoughts about the events of the last few days? Are you angry? Afraid? Ambivalent? Please be honest."
+
+"To be perfectly honest I have tried not to think about things. It was all so overwhelming, and the conversation I had with Catalina this morning disturbed me. I am afraid. And there is some anger in there too. I am not ambivalent. When I try to understand things I get confused. What gets me the most is still the hostility directed at me from complete strangers, the people in the group, the Santiago Dogs."
+
+The doctor nodded.
+
+"Beside the pool this afternoon I was napping and as I drifted between being awake and asleep this question kept repeating itself," Will stopped as if hearing the question in his head, and then repeated it out loud, "Do I live an evil life?"
+
+The question hung in the air. The doctor did not respond to it. He only listened, and a few moments later Will went on.
+
+"An evil life by which I mean to explain the hatred strangers from halfway across the world would have against me on a *personal* level. Is it a life of privilege and luxury they don't have access to? Is it opportunities I have because of my nationality or my race? Luxuries I enjoy by injustices committed against those I cannot see, am not even aware of. And the answer, I think, is yes. In that respect I do live an evil life. Me, as an individual. Not by malice or violence or hatred, but by a kind of conscious ignorance I have to achieve to not see the daily injustices that provides me with my life, as I live it; The abundance of cheap food farmed by immigrant workers who labor in the hot sun so I can stroll down the grocery store whenever I like to pick up a load of bread, stylish clothing put together in warehouses by children dressed in rags, electronic gadgets produced in enormous factories where people are the machinery, pushed to their limit to meet a quota because Will must have his shiny new iPhone and not one day late!"
+
+The waiter came with their dishes and set them down. Will was quiet but began to eat. The doctor took a bite as well, and still did not respond. The food was good, fresh, simple. Will had not had a meal like this his whole trip and scarfed it down.
+
+"Anyway, those are the thoughts that I have been thinking and the feelings I have been feeling. Is that what you wanted to know?"
+
+The doctor pondered for a moment before replying.
+
+"I can understand your feelings. You spoke the truth and I admire your dedication to honesty. Perhaps you don't want to think about it this clinical way, but you are empathizing with those who meant you harm, trying to see things from their perspective, in order to make sense out of the chaos and that is all completely normal for someone who has been in your position. You are not incorrect that as an American you live a life of privilege compared to millions of people in the world. And what goes along with privilege is a kind of inherent ignorance, an expectation that your experience represents the way things are, or the way things ought to be. There are many subtleties and viewpoints that make it more complicated, but what it comes down to always is that there are those who have and those who do not have, and those who have feel things should continue as they are and those who do not have feel things should change."
+
+"What do you think?" Will asked.
+
+"I think the world is perfect in its imperfection, and that human systems are always in need of change. And I do think those who live in privilege should become conscious that what they feel entitled to often comes at the expense and hardship of someone else. So I think your guilt on that subject is justified and right. But here is what I don't think. I do not think one should attempt to change a system through violence. Never. I think those who do such things have lost their way. Capitalism, socialism, all these systems are imperfect and they should be rethought on a regular basis. Is this working? Is this working at the expense of others? And if not, change things. The biggest problem people have is not having faith in others. They see the eternal potential for growth and change in themselves, but not in others. Once a capitalist, always a capitalist. Once a murderer, always a murderer."
+
+"Sometimes I wish I lived in the old days. Everything now is so connected. How can I live a righteous life in society when everything I come in contact with has been tainted at some point by the corruption, the exploitation, greed, violence, pollution? How do I live in this world? Is the answer to drop out of society? To live as a hermit in order to save my own soul? Somehow that does not feel right. There is something selfish about that. So is the answer to live in society but doing good. Do I give to the poor? If so, at what point do I stop giving? At what point do I decide, I will help you over here and I will help you over there, but you I can't help because I've already helped those others. Do I keep just enough to keep me alive? Is that what life is?"
+
+"I don't have the answers to these questions," the doctor said, "On the one hand I can tell you from experience that these are good questions to ask, but it can easily paralyze you into inaction or frustration or slowly it can turn into self-righteousness, which will lead to the hatred of others, possibly violence. I have seen it happen."
+
+"What then? Do I zone out like so many of my friends, become numb to the problems of life and go through life like an automaton, doing just what is expected of me, going to work each morning, getting married, having children, saving up for retirement, not breaking any laws."
+
+"I read one time that evolution has given every living thing some kind of advantage in the system, something specific in their physical makeup. But for human beings, we don't have anything in our physical makeup that is advantageous. We are something like an amorphous shape, but what we do have is our mind. That is what we were given by evolution or God or whatever you believe put us here. If that is true, then it is what we create with our minds is the providence of our being here, how can technology be wrong, inherently? There are so many people who want to see us return back to a simpler time. I feel like that is wrong. I think we should question what we do with our technology, but to call technology itself a sin is to deny that which God or whatever has given us."

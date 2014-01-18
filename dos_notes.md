@@ -269,3 +269,5 @@ Will returns to the hotel, goes for a swim in the pool upstairs, then takes a sh
 Afterwards Will goes to a theater to watch a movie, a kids movie. Then to bed.
 
 In the morning he has breakfast and waits for the cab to take him to the airport. Along the way they stop at Park Bustamante and Will has a sandwich, admires the park the people and the dogs.
+
+Will, I am going to be straight with you. For people who have gone through traumatic experiences, which you most certainly have, there are two ways it can go. One you are fine, you accept the past and move forward with clarity and a better understanding of the world around you. But it could go the other way, you could get pulled into isolating paranoia. Your anxiety can get the better of you, alienating you from others, locking yourself indoors, seeing the worst in people. Thinking everyone is out to get you. I do not want this to happen. This is bad.
