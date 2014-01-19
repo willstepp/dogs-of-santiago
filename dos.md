@@ -2174,7 +2174,7 @@ Will was quiet, but continued eating. The doctor ordered another Pisco Sour.
 
 "I hate to break this to you, Will but there are many, many poisons in nature which will not hesitate to kill you in a heartbeat. That is no argument for nature-based medicine. Here is the thing. We do the best we can. We act on the knowledge we have, imperfect as that is. What we thought we knew hundreds of years ago, we later realized was ineffective, or there was perhaps a better way. It is a technology. It improves. Now, that is not to say nature-based medicine is backwards or ineffective. Most definitely not. I sometimes prescribe holistic treatments. Because some do work. However, some do not. The key here is to remain open and have humility. And to resist dogma, on both sides. The medicines you say you don't want to take have helped millions of people make it through the day. It is not perfect. There are issues and side effects, and sometimes there are serious complications. And there are large businesses involved in pharmaceuticals who let the lust for money get in the way of progress, become corrupt. Those things are all real, Will, and you should be conscious of them. But what I don't want to see is you rage blindly against the wrong thing."
 
-"Do not lose hope, Will. Have faith in people. Look for the best in them, love them, and do what you can to help them in their journey through this life, and receive their help with gratitude. Do not be taken in by those who live by anger, by the self-righteous, by the false prophets. There will always be the poor, the injured, and the abused. Yet do not fall into despair, or place the weight of this upon your shoulders. Listen to your conscious above all outside influence, above any book or guru. Be humble and try to take no more from the Earth than you require. Yet do enjoy the gifts of this world. A poet said there is nothing upon this poor, poor Earth but gifts. Believe in that, my friend. It is all a gift, the good and the evil. It is all a gift."
+"Do not lose hope, my friend. Do not harden your heart against the world. Have faith in people. Look for the best in them and do what you can to help them in their journey through this life, but also be willing to receive their help with gratitude. Do not be swallowed up by greed or anger or self-righteousness. There will always be the poor, the injured, and the abused. Do not fall into despair. Do not place the weight of that upon your shoulders. Listen to your own conscience above any outside influence, above any book or guru. Be humble and try to take no more resources than you need. Yet, enjoy the gifts of this world. They have been given to you. Believe in that, my friend. It is all a gift, the beautiful and the ugly in life, the good and the evil. It is all a gift, made precious by the fact that it will not last forever. This is my prayer."
 
 Will looked at the table and contemplated the things the doctor had said. He did not reply. He felt it would be rude to do so. Instead he let the words linger in the space between them. He finished his dinner. The doctor finished his plate and called the waiter, speaking to him in Spanish. A few minutes later the waiter brought out two plates, dessert, and set it down in front of them. A moist white cake covered with a deep red glaze.
 
@@ -2182,8 +2182,32 @@ Will looked at the table and contemplated the things the doctor had said. He did
 
 "It looks good," Will said. He forked a piece into his mouth and was surprised that it was chilled, a sweet cream soaked through the cake, and the glaze was a tart raspberry.
 
-"This is the best dessert I've ever had," Will said.
+"This has got to be the best damned dessert I ever tasted. Its amazing," Will said.
 
 The doctor laughed and they both finished the dessert in silence. Afterwards the doctor paid the bill and walked with Will back to the hotel. By then the rain had stopped and the sidewalk glistened with the lights from the storefronts and bars. It was cold and the traffic was thin. The stars were visible in the night sky.
 
 They said goodbye at the doors of the hotel. The doctor's handshake was firm. Will watched him walk down the street and hail a cab and then he was gone. The doorman opened the doors of the hotel and he went inside.
+
+Thirteen
+
+He woke at ten. He stretched and yawned, feeling well-rested of the first time in days. He went to the window overlooking the street below. He watched the people walking, the traffic going by. It was a clear day, high clouds, blue sky. The smog had been washed away by the rain so you could see the Andes clear on the horizon, the snowy peaks. The morning sunlight fell on the buildings in the distance, shining off the windows.
+
+His leg was in pain so he took one of the pain pills. He thought to take a Xanax but put it off, for now. After a shower and shave he put on the clothes which had been cleaned for him and checked his email, although there was nothing new. For a brief moment he saw the old emails from Constanza but ignored them, closed his laptop and packed it into his duffle bag.
+
+The phone rang and the lady at the desk informed him there was a car arriving within the hour to carry him the airport and asked if he needed anything before leaving. He thanked her and said no, that he would be down in a few minutes to checkout.
+
+He made a quick sweep of the room, picked up his bag, and went downstairs. The same woman from the day before greeted him at the desk, asked how his stay was, all that. He told her it was fine and then walked over to the concierge. The concierge greeted him with a familiar smile.
+
+"A car will be arriving within the hour to take me to the airport. Is it okay if I leave my bags here while I go out for some lunch?"
+
+"Of course, sir," I will inform the valets to place your bags in the back, then when your car arrives they can get them for you."
+
+"Perfect, thank you," Will said, "On that subject, do you know a good place to get a simple lunch, like a sandwich, nearby?"
+
+"Ronaldo's Bakery, just around the block. They bake their bread fresh daily and sell wonderful sandwiches at lunchtime. You will beat the crowd if you go there now."
+
+"Gracias," Will said.
+
+"De nada, senior."
+
+After leaving his bags with the valet manager, Will walked around the block, mingled in with the constant crowd which seemed to walk these streets. The air was not as cold as it had been, warm even when the sun was on you. He admired the tall buildings as he walked around the corner, where the skyscrapers blocked off the sun. Instantly it became cooler, but still pleasant. Finally he arrived at Ronaldo's, a tiny place he would have missed if not for the directions. There was no sign but it had to be the place. The smell of freshly baked bread filled the street and in the window fresh cuts of meat were on display.
