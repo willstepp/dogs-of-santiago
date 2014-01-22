@@ -281,3 +281,9 @@ Will wakes in the morning, takes a shower, checks out of the hotel, where someon
 What happens now? 1-20-2014
 
 Will walks around the corner to the shop and orders a Cuban sandwich, the special for the day. He leaves the shop and comes to the Park Bustamante. He walks around the dirt path where construction has been going on, past the large bronze statue of a ship. He comes to an open ground with a playground and sits on the grass under a tree. He watches the children playing, the dogs sleeping underneath another tree, a couple making out, a vendor selling hot dogs, two police officers on horseback, a bust of Abraham Lincoln with a pink spray-painted beard. He eats his sandwich. There is a young boy, blond, playing with a puppy. He watches them play.
+
+Once his face had been burned into his memory, his actions had become inevitable and he heard himself telling the driver, "Stop here. I changed my mind. I have to do something." And at that moment even he questioned his motivation. There wasn't one. All there was was that face in his mind, the face of suffering.
+
+REWRITE NOTES
+
+The dog he watches should not be happy, this is to balance with the dog at the end who plays with the boy
