@@ -287,3 +287,4 @@ Once his face had been burned into his memory, his actions had become inevitable
 REWRITE NOTES
 
 The dog he watches should not be happy, this is to balance with the dog at the end who plays with the boy
+In the interview with the police agent, there should be a camera, less emotion, more back and forth answers
