@@ -286,5 +286,14 @@ Once his face had been burned into his memory, his actions had become inevitable
 
 REWRITE NOTES
 
+Up until the meeting at Juan Valdez, interleave IM conversations. Increase their connection, until it ends with her suggesting he should come for her birthday, a grand romantic gesture. She does not ask though.
+
+What is outside your window?
+
+First thing Ben says to Will, "Why so glum chum?"
+
 The dog he watches should not be happy, this is to balance with the dog at the end who plays with the boy
 In the interview with the police agent, there should be a camera, less emotion, more back and forth answers
+
+
+I never understood atheism. Nothing observable spontaneously exists. Everyting comes from a source. The source of you is your parents...and back and back to molecules and atoms. But here is the thing. At some point, the atheist says, 'enough', we've gone back enough. We don't have evidence and so the rational conclusion to draw is after this point is nothing. You might say, well we only rely on observable facts, but in fact they deny what they observe. The source of everything is that which we call God. Now, the question of its characteristics is not known, however since the smallest contains the largest we can intuit the nature of God. Is the God of Christianity accurate? Probably not. Is Allah of Islam accurate. Probably not. Is the Self of Hinduism accurate. Probably not.

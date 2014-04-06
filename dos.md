@@ -537,7 +537,7 @@ Jamie pulled out his phone and opened the browser. "You say you can email her, h
 
 Will took the phone and signed in to his Gmail. He found the last email from Constanza and responded with a simple message.
 
-	Who are you really? I would like to meet you. D
+	Who are you really? I would still like to meet you. D
 
 He hit send, handed the phone back to Jamie, and told the others what he sent.
 
@@ -1223,7 +1223,7 @@ The tires screeched as the taxi drove off before the light at the corner changed
 
 "No," Will replied. He walked him over to the group of beggars and pointed at the sign the old man was holding, "I need to know what this sign says. The one there." He pointed to it.
 
-"It says, must travel San Bernardo. See my son."
+"It says, must travel San Bernardo. See my son Felipe."
 
 "Where is San Bernardo?"
 
@@ -1554,7 +1554,7 @@ But then a thought occurred to him. He wondered if it were really alive? How was
 
 "You will touch it," the small voice inside him whispered.
 
-"If I touch it, it will die," he spoke.
+"If I touch it, it will die."
 
 He reached out to the middle of the pond and placed his hand gently around the head of the fetus, only for a second, then brought his hand away. The flesh was cold, like a frog, but it did not react to his touch.
 
@@ -2174,7 +2174,7 @@ Will was quiet, but continued eating. The doctor ordered another Pisco Sour.
 
 "I hate to break this to you, Will but there are many, many poisons in nature which will not hesitate to kill you in a heartbeat. That is no argument for nature-based medicine. Here is the thing. We do the best we can. We act on the knowledge we have, imperfect as that is. What we thought we knew hundreds of years ago, we later realized was ineffective, or there was perhaps a better way. It is a technology. It improves. Now, that is not to say nature-based medicine is backwards or ineffective. Most definitely not. I sometimes prescribe holistic treatments. Because some do work. However, some do not. The key here is to remain open and have humility. And to resist dogma, on both sides. The medicines you say you don't want to take have helped millions of people make it through the day. It is not perfect. There are issues and side effects, and sometimes there are serious complications. And there are large businesses involved in pharmaceuticals who let the lust for money get in the way of progress, become corrupt. Those things are all real, Will, and you should be conscious of them. But what I don't want to see is you rage blindly against the wrong thing."
 
-"Do not lose hope, my friend. Do not harden your heart against the world. Have faith in people. Look for the best in them and do what you can to help them in their journey through this life, but also be willing to receive their help with gratitude. Do not be swallowed up by greed or anger or self-righteousness. There will always be the poor, the injured, and the abused. Do not fall into despair. Do not place the weight of that upon your shoulders. Listen to your own conscience above any outside influence, above any book or guru. Be humble and try to take no more resources than you need. Yet, enjoy the gifts of this world. They have been given to you. Believe in that, my friend. It is all a gift, the beautiful and the ugly in life, the good and the evil. It is all a gift, made precious by the fact that it will not last forever. This is my prayer."
+"Do not lose hope, my friend. Do not harden your heart against the world. Have faith in people. Look for the best in them and do what you can to help them in their journey through this life, but also be willing to receive their help with gratitude. Do not be swallowed up by greed or anger or self-righteousness. There will always be the poor, the injured, and the abused. Do not fall into despair. Do not place the weight of that upon your shoulders. Listen to your own conscience above any outside influence, above any book or guru. Be humble and try to take no more resources than you need. Yet, enjoy the gifts of this world. They have been given to you. Believe in that, my friend. It is all a gift, the beautiful and the ugly in life, the good and the evil. It is all a gift, made precious by the fact that it will not last forever. This is what I want to say to you."
 
 Will looked at the table and contemplated the things the doctor had said. He did not reply. He felt it would be rude to do so. Instead he let the words linger in the space between them. He finished his dinner. The doctor finished his plate and called the waiter, speaking to him in Spanish. A few minutes later the waiter brought out two plates, dessert, and set it down in front of them. A moist white cake covered with a deep red glaze.
 
@@ -2182,7 +2182,7 @@ Will looked at the table and contemplated the things the doctor had said. He did
 
 "It looks good," Will said. He forked a piece into his mouth and was surprised that it was chilled, a sweet cream soaked through the cake, and the glaze was a tart raspberry.
 
-"This has got to be the best damned dessert I ever tasted. Its amazing," Will said.
+"It's wonderful," Will said.
 
 The doctor laughed and they both finished the dessert in silence. Afterwards the doctor paid the bill and walked with Will back to the hotel. By then the rain had stopped and the sidewalk glistened with the lights from the storefronts and bars. It was cold and the traffic was thin. The stars were visible in the night sky.
 
